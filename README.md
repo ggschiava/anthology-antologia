@@ -6,7 +6,9 @@ This README.md has all the poems I had publised on my Blog [Ristretto230](https:
 **/espanol/** : my work in Spanish | *mis escritos en español*
 
 ### Books
-[Anthology | Antologia](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_AnthologyAntologia)
+* 2021 *work in progress* [Anthology | Antologia](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_AnthologyAntologia)  
+* 2020 [Mum | Mama](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_mama)  
+
 
 
 ### **About** | *Quien soy*
