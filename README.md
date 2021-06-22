@@ -1,7 +1,7 @@
-# Poesia & Poetry
+# Poetry | *Poesia*
 
 This README.md has all the poems I had publised on my Blog [Ristretto230](https://ristretto230.com)   
-*Este README.md tiene todos los poemas que he publicado en mi Blog [Ristretto230](https://ristretto230.com)   
+*Este README.md tiene todos los poemas que he publicado en mi Blog [Ristretto230](https://ristretto230.com)*  
 
 Instagram [ristretto230](https://www.instagram.com/ristretto230/)  
 Blog [Ristretto230](https://ristretto230.com)     
