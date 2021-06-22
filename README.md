@@ -1,14 +1,28 @@
 # Poesia & Poetry
 
+This README.md has all the poems I had publised on my Blog [Ristretto230](https://ristretto230.com)   
 
-<!-- beg-ignore -->
+**/englishEspanol/** : all my work in these languages  | *mis escritos en ingles español*
+**/espanol/** : my work in Spanish | *mis escritos en español*
+
+
+
+### **About** | *Quien soy*
 Todos los poemas escritos por Guillermo G. Schiava D'Albano.  
 *All poems wrote by Guillermo G. Schiava D'Albano*  
+
 Instagram [ristretto230](https://www.instagram.com/ristretto230/)  
 Blog [Ristretto230](https://ristretto230.com)     
 Email ristretto230@gmail.com   
-<!-- end-ignore -->
 
+
+
+### **Acknowledgments** | *Agradecimientos* :
+To my friends who helped me to finish this book:  
+*A* *mis* *queridos* *amigos* *que* *me* *ayudaron* *a* *terminar* *este* *libro*:  
+Mamá, abuela Lila, Diana Florez Agudelo, Carl Tucker, Rafael Castro, Vivina
+Castagna, Horacio Barrabasqui, Dr. Manuel S. Guelfi, Lorena N. Schiava D’Albano,
+Pablo Giacopinelli, Simon Vargas Russo, Dr. Noèlia Diaz Vicedo, Dr. J Mindel, & Dr. Carlos Conde Solares.
 
 ---
 ## Pagarés <!-- 8, February 2015 -->
@@ -94,4 +108,4 @@ Yesterday you did not call me.
 And your cold coffee  
 on the little table  
 does not understand it.  
-And neither do I.  
+And neither do I.    
