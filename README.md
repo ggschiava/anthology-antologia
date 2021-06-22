@@ -1,32 +1,48 @@
 # Poesia & Poetry
 
 This README.md has all the poems I had publised on my Blog [Ristretto230](https://ristretto230.com)   
-
-**/englishEspanol/** : all my work in these languages  | *mis escritos en ingles español*
-**/espanol/** : my work in Spanish | *mis escritos en español*
-
-### Books
-* 2021 *work in progress* [Anthology | Antologia](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_AnthologyAntologia)  
-* 2020 [Mum | Mama](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_mama)  
-
-
-
-### **About** | *Quien soy*
-Todos los poemas escritos por Guillermo G. Schiava D'Albano.  
-*All poems wrote by Guillermo G. Schiava D'Albano*  
+*Este README.md tiene todos los poemas que he publicado en mi Blog [Ristretto230](https://ristretto230.com)   
 
 Instagram [ristretto230](https://www.instagram.com/ristretto230/)  
 Blog [Ristretto230](https://ristretto230.com)     
 Email ristretto230@gmail.com   
 
 
+### Books (English &  Spanish) | *Libros en (Ingles & Español)*
+* 2021 *work in progress* [Anthology | Antologia](https://github.com/ggschiava/anthology-antologia/tree/main/english_espa%C3%B1ol/book_AnthologyAntologia)  
+* 2020 [Mum | Mama](https://github.com/ggschiava/anthology-antologia/blob/main/english_espa%C3%B1ol/book_mama/mama.pdf)  
+* 2018 [Canary Wharf](https://github.com/ggschiava/anthology-antologia/blob/main/english_espa%C3%B1ol/book_CanaryWharf/canarywharf_0-2.pdf)
+* 2016 [Clerkenwell](https://github.com/ggschiava/anthology-antologia/blob/main/english_espa%C3%B1ol/book_clerkenwell/Clerkenwell-v3.pdf)
+* 2015 [Ristretto230](https://github.com/ggschiava/anthology-antologia/blob/main/english_espa%C3%B1ol/book_ristretto230/ristretto2306.pdf)
+
+
+### In this github repo |  *En este repositororio de github*
+**/englishEspanol/** : all my work in these languages  | *mis escritos en ingles español*
+**/espanol/** : my work in Spanish | *mis escritos en español*
+
+### **About** | *Quien soy*
+*All poems wrote, all pictures taken by Guillermo G. Schiava D'Albano*  
+Todos los poemas escritos y todas las fotos tomadas por Guillermo G. Schiava D'Albano.  
+
+
+
+
 
 ### **Acknowledgments** | *Agradecimientos* :
-To my friends who helped me to finish this book:  
-*A* *mis* *queridos* *amigos* *que* *me* *ayudaron* *a* *terminar* *este* *libro*:  
+To my friends who helped me with this work :  
+*A mis queridos amigos que me ayudan a escribir*:  
+
 Mamá, abuela Lila, Diana Florez Agudelo, Carl Tucker, Rafael Castro, Vivina
 Castagna, Horacio Barrabasqui, Dr. Manuel S. Guelfi, Lorena N. Schiava D’Albano,
 Pablo Giacopinelli, Simon Vargas Russo, Dr. Noèlia Diaz Vicedo, Dr. J Mindel, & Dr. Carlos Conde Solares.
+
+
+### All poems (work in progres) | *Todos los poemas (aun no terminados de copiar)*  
+First you will find the poem in Spanish followed by the English translation when present.  
+To see the date of the poem see this file with any plain text editor withtout Markdown view.
+
+*Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
+*Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*   
 
 ---
 ## Pagarés <!-- 8, February 2015 -->
