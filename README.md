@@ -112,7 +112,7 @@ and your excuses on my bed.
 <sup>3</sup> Populist .
 
 ---
-##  Torta con jugo de Naranjas <!-- ??, ??, 2015  -->
+##  Torta con jugo de Naranjas <!-- 2015  -->
 La hábito que
 no es rutina<sup>1</sup>
 comienza en el taxi.
@@ -216,6 +216,7 @@ is a call to your bed.
 
 <sup>1</sup> In Italian means : pretty
 
+
 ---
 ## Solos <!-- 26, September 2015 -->
 No confíes en mis puntos
@@ -253,7 +254,7 @@ The books you read.
 Today’s news paper.
 The ring on your left hand.
 Because we are alone.
-And together with your past<sup>33</sup>
+And together with your past<sup>3</sup>
 and what’s left in your glass
 I am the best excuse for a kiss.
 
