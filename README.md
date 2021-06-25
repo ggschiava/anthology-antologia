@@ -54,34 +54,34 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 
 ---
 ## Lucia-Campañas de miedo   <!-- 7, November 2015 -->
-Me dijiste que no
-follarías con migo.
-Que entre tus amigos*
-y mis fantasías ni Berlín
-tuvo tanto muro.
-Apuntando a tu amiga la italiana
-me advertiste que no la follara+.
-Te engañaste diciéndome
-que yo buscaba tu tiempo.
-Sometiendo con tu
-sadomasoquismo a mis ganas.
-Con la moral de un peronista^
-y sin demagogias
-ni campañas de miedo.
-Te advierto que
-cuando sean las tres
-y entiendas a este que te escribe.
-Cuando él te diga que no.
-Cuando desnuda e impaciente
-te den disculpas y no el sexo que
-buscabas.
-Mi puerta estará abierta
-tu vaso siempre lleno
-y tus excusas en mi cama.
+Me dijiste que no  
+follarías con migo.  
+Que entre tus amigos*  
+y mis fantasías ni Berlín  
+tuvo tanto muro.  
+Apuntando a tu amiga la italiana  
+me advertiste que no la follara+.  
+Te engañaste diciéndome  
+que yo buscaba tu tiempo.  
+Sometiendo con tu  
+sadomasoquismo a mis ganas.  
+Con la moral de un peronista^  
+y sin demagogias  
+ni campañas de miedo.  
+Te advierto que  
+cuando sean las tres  
+y entiendas a este que te escribe.  
+Cuando él te diga que no.  
+Cuando desnuda e impaciente  
+te den disculpas y no el sexo que  
+buscabas.  
+Mi puerta estará abierta  
+tu vaso siempre lleno  
+y tus excusas en mi cama.  
 
-<sup>1</sup> Yo entro en tu categoría de amigos.
-<sup>2</sup> Joder flaca!
-<sup>3</sup> Populista.
+<sup>1</sup> Yo entro en tu categoría de amigos.  
+<sup>2</sup> Joder flaca!  
+<sup>3</sup> Populista.  
 
 ##  Lucia-Fear campaigns <!-- 9, November 2015 -->
 You told me you will not
