@@ -981,7 +981,7 @@ te quiero volver a besar.
 vuelvo a vos y a tu dialecto  
 florentino.  
 
-## Aurora-Strategy meeting (English) <!--  18, April 2015 -->  
+##Aurora-Strategy meeting (English) <!--  18, April 2015 -->  
 While they talk about  
 *marketing* *strategy*,  
 I see your naked breasts  
