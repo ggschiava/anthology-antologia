@@ -1582,7 +1582,7 @@ for you to undress and wait for me.
 <sup>1</sup> Deconstruc… as well the title of a song by  Chico Buarque – Construção  
 ---  
 ## Ana: Porto & Lisboa <!-- 21, August 2016 -->  
-Bromas “*I* *joke*” en  
+Bromas *I* *joke* en  
 ingles *novo*.  
 Ternura de vestido blanco  
 con resacas.  
@@ -1596,7 +1596,7 @@ Uso todas mis seciones
 de terapia y dejo que la  
 vida me abrace.  
 Escuchandote decir  
-“*menino* *ten* *que* *dormir*”  
+*menino* *ten* *que* *dormir*  
 
 ---  
 ## Ana <!-- 27, July 2016 -->  
