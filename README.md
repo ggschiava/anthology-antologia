@@ -52,8 +52,6 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 *Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
 *Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
-
-
 ---  
 ## Cristina <!-- 13, February 2019	 -->  
 Corrí ese tren en  
@@ -126,7 +124,7 @@ I invoke Mameli<sup>1</sup>
 from his death  
 and his love.  
 He gave Italy  
-his spring<sup>22</sup> .  
+his spring<sup>2</sup> .  
 He dreamed about  
 a train and two encounters.  
 About your black eyes  
@@ -174,7 +172,7 @@ leaving on time.
 <sup>4</sup> Avenue in Havana that overlooks the Caribbean Sea.  
 
 ---  
-## Jennifer* – Madrid <!-- 31, January 2019  -->  
+## Jennifer<sup>1</sup> – Madrid <!-- 31, January 2019  -->  
 Humo en tus ojos  
 de morochas y rubias.  
 De Chueca^ y del  
@@ -249,13 +247,14 @@ en Atenas para un viejo
 y un sombrero.  
 
 <sup>1</sup> Capital del imperio Persa (518 ac a 331 ac)  
+
 ---  
 ## Corrido del Piso 13 <!-- 2, September 2018 -->  
 Allá en la Sinaloa<sup>1</sup> de  
 gueras<sup>2</sup> sin sol.  
 Tres amigos y tres  
 botellas de ron.  
-Pa’ el ** pa’ el **** y  
+Pa’ el *x* pa’ el *xx* y  
 para Don Simón.  
 Sin cuernos de chivo<sup>2</sup>  
 ni kilos en el mostrador.  
@@ -339,7 +338,7 @@ Central London?
 You shouted at that poor drunk Italian  
 that did not see you.  
 The bar was not what you expected.  
-And *here* *there* *is* *nothing* *good* *to8 *eat*.  
+And *here* *there* *is* *nothing* *good* *to* *eat*.  
 It’s not the children’s fault  
 when they break the porcelain  
 or the respect.  
@@ -660,6 +659,7 @@ in your purse.
 Tonight full of bank notes  
 and tomorrow of rifts.  
 
+
 ---  
 ## Veneno  <!-- 6, May 2018 -->  
 Fui a escuchar poesía  
@@ -886,6 +886,8 @@ Mediterranean is not the same
 than command them to victories.  
 
 <sup>1</sup> Battle between the “Holy League” and the Ottoman Empire in 1571. Suleiman the Magnificent actually died in 1566. The Sultan in the battle of Lepanto was Selim II “the drunkard”  
+
+
 ---  
 ## Las velas marcharon <!-- 17, April 2018  -->  
 Espadas curvas se tiñen de  
@@ -984,6 +986,9 @@ to Istanbul.
 <sup>4</sup> Jean Parisot de la Valette, Grand Master of the Order of Malta during the Great Siege of 1565  
 <sup>5</sup> Knights and chaplains gave final battle defending the altar. The relics of St. Anne were in the chapel brought by the Knights of Malta in 1530.  
 <sup>6</sup> Luke 9:60  
+
+
+
 ---  
 ## Agua <!-- 9, March 2018 -->  
 ¿Donde vas agua fria de lluvia  
@@ -1094,7 +1099,7 @@ Que hacen que Londres sea
 infinitamente más vivible.  
 
 <sup>1</sup> Cisco Connect  
-<sup>2</sup> Cantar de los Cantares (hebreo שִׁיר הַשִּׁירִים, Shir Hashirim)  
+<sup>2</sup> Cantar de los Cantares (hebreo Shir Hashirim)  
 
 ## Emilia – Holborn III <!-- 4, February 2018 -->  
 The perfume in Holborn*  
@@ -1114,6 +1119,7 @@ infinitely more livable.
 
 <sup>1</sup> London district  
 <sup>2</sup> Cisco Connect  
+
 
 ---  
 ## Papá <!-- 14, January 2018  -->  
@@ -1142,6 +1148,7 @@ no encuentro
 nada.  
 
 (Inspirado en un poema de Joaquin Sabina, en su libro Ciento Volando de Catorce)  
+
 
 ---  
 ## Camila – Redención <!-- 13, January 2018 -->  
@@ -1176,7 +1183,7 @@ Brindaron dignidad
 al café de esta mañana.  
 
 <sup>1</sup> Juan 19:34  
-<sup>2</sup> "Ceci – Pasos"  
+<sup>2</sup> Leer mi poema "Ceci – Pasos"  
 <sup>2</sup> Juan 20:18  
 <sup>3</sup> Juan 19:28-29  
 <sup>4</sup> Viento calido en la cordillera de los Andes Argentina.  
@@ -1654,8 +1661,7 @@ to love each other.
 Before sharing our coffee.  
 
 <sup>1</sup>  Girl in Portuguese  
-<sup>2</sup>  Some dying stars create a supernova.  
-
+<sup>2</sup>  Some dying stars create a supernova.
 ---  
 ## El Vedado <!-- 9, April 2016  -->  
 En la Avenida de los  
@@ -1784,7 +1790,7 @@ Y yo me halla olvidado
 del vaso que robamos  
 en Dinamarca.  
 
-## Katharina <!--  -->  
+## Katharina <!--  21, April 2016 -->  
 I forgot the glass  
 we had stolen in Copenhagen,  
 before I met you.  
