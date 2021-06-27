@@ -38,10 +38,11 @@ To my friends who helped me with this work :
 Mamá, abuela Lila, Diana Florez Agudelo, Carl Tucker, Rafael Castro, Vivina  
 Castagna, Horacio Barrabasqui, Dr. Manuel S. Guelfi, Lorena N. Schiava D’Albano,  
 Pablo Giacopinelli, Simon Vargas Russo, Tato Saenz, Cristobal Perez,  
+Emilio, Patricia Santo,   
 Dr.  Aurora Mariani,  
 Dr. Benjamin Mailhé, Dr. Dominika Raciborska,  
 Dr. Noèlia Diaz Vicedo, Dr. J Mindel, & Dr. Carlos Conde Solares,  
-Stephanie Lewchenko  
+Stephanie Lewchenko, Dr Ostat   
 
 
 ### All poems (work in progres) | *Todos los poemas (aun no terminados de copiar)*  
@@ -49,10 +50,1772 @@ First you will find the poem in Spanish followed by the English translation when
 To see the date of the poem see this file with any plain text editor withtout Markdown view.  
 
 *Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
-*Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*   
+*Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
-https://ristretto230.com/page/10/
 
+
+---  
+## Cristina <!-- 13, February 2019	 -->  
+Corrí ese tren en  
+*London* *bridge*.  
+Como si me fueras a  
+esperar en el de las  
+7:27 en *Croydon*.  
+Otro tren que se  
+va mind the gap.  
+Y yo con un café  
+para dos.  
+Por eso invoco a  Mameli<sup>1</sup>  
+desde su muerte y su amor.  
+El le regaló a Italia  
+su primavera<sup>2</sup> .  
+El soñó con un tren  
+y dos encuentros.  
+Con tus ojos negros y  
+tu sangre griega.  
+Con balas y cañones  
+a las Iglesias.  
+Con la caída del poder  
+temporal de los papas.  
+Con tu numero de teléfono.  
+Con que huyamos a Cuba y  
+nos despertemos juntos  
+al *song*.  
+Las mulatas recordarán  
+con espinas y muñecas vudú.  
+Como les robaste mil miradas  
+y una botella de ron.  
+Como la Luna  
+les dió la espalda.  
+Para ir a ver tus  
+pechos ingleses  
+mirando al Malecón<sup>3</sup> .  
+Cuídate Cristina las  
+mulatas no perdonan  
+ni olvidan.  
+El Caribe si se  
+olvidará de vos.  
+Y la Luna que es solo  
+tuya y de tu piel.  
+Mañana buscará el amor  
+nuevo en Estabul.  
+En velos negros  
+y tangas rojas.  
+Pero mañana por la mañana  
+no hay vuelos.  
+Y hoy no hay gloria  
+en que este tren  
+salga a tiempo.  
+
+<sup>1</sup> Goffredo Mameli poeta, soldado autor de la letra del himno Italiano  
+<sup>2</sup> “Primavera de los pueblos” comienzo de la caída de los viejos regímenes 1848  
+<sup>3</sup> Avenida en la Habana que da al mar caribe.  
+
+## Cristina <!-- 20, August 2019  -->  
+I ran that train  
+in London bridge.  
+As if you were  
+going to wait for me  
+at 7:27 in Croydon.  
+Another train that leaves  
+*mind* *the* *gap*.  
+And me with  
+a coffee for two.  
+That is why  
+I invoke Mameli<sup>1</sup>  
+from his death  
+and his love.  
+He gave Italy  
+his spring<sup>22</sup> .  
+He dreamed about  
+a train and two encounters.  
+About your black eyes  
+and your Greek blood.  
+About bullets  
+and cannons  
+to the churches.  
+About your phone  
+number.  
+About us fleeing  
+to Cuba and waking up  
+together to the song.  
+The *mulatas*<sup>3</sup>  will  
+remember with  
+thorns and voodoo dolls.  
+How you stole  
+a thousand looks  
+from them  
+and a bottle of rum.  
+As the moon  
+turned its back on them.  
+To go and see  
+your English breasts  
+looking at the *Malecon*<sup>4</sup>.  
+Take care Cristina,  
+the mulatas do not  
+forgive or forget.  
+But the Caribbean will.  
+And the Moon that  
+belongs only to you  
+and your skin.  
+Tomorrow will look  
+for a new love in Istanbul.  
+In black veils  
+and red thongs.  
+But tomorrow morning  
+there are no flights.  
+And today there  
+is no glory in this train  
+leaving on time.  
+
+<sup>1</sup> Goffredo Mameli poet, soldier author of the lyrics of the Italian anthem  
+<sup>2</sup> “Spring of the peoples” beginning of the fall of the old regimes 1848  
+<sup>3</sup> Mulatas: mixed-race girl  
+<sup>4</sup> Avenue in Havana that overlooks the Caribbean Sea.  
+
+---  
+## Jennifer* – Madrid <!-- 31, January 2019  -->  
+Humo en tus ojos  
+de morochas y rubias.  
+De Chueca^ y del  
+*ambiente*.  
+Caribe y Pacífico.  
+Humo de las que  
+unieron esos mares.  
+Mujeres grandes y  
+pequeñas.  
+Pipas, cigarros y  
+papel de liar.  
+Sueños en Panamá y  
+despertadores en Madrid.  
+Tardes de Sol<sup>2</sup>.  
+donde tomamos la  
+primera caña.  
+No estaba en tus planes  
+dejarte querer entre  
+cafés y librerías.  
+Entre Londres y Madrid.  
+En el frío del  
+mar Argentino.  
+El humo se escapa  
+de tu boca al Manzares<sup>3</sup>.  
+Dándole la espalda,  
+salimos a caminar.  
+
+<sup>1</sup>  Para ser leido escuchando Smoke Gets in Your Eyes – Coleman Hawkins  
+<sup>2</sup>  Barrio en Madrid.  
+<sup>3</sup>  Río de Madrid que sus aguas terminan en el Atlántico.  
+
+
+
+---  
+## Florencia – Córdoba <!-- 8, January 2019  -->  
+Calor de las sierras  
+en la noche de Güemes<sup>1</sup>.  
+Memoria de cuatro cuerdas  
+en un vestido negro  
+con hilos dorados.  
+Me marcaron con sus  
+dientes para exorcizar  
+a mi alma de futuras  
+amantes.  
+Esta noche ellas  
+esperan en la puerta.  
+Yo no.  
+
+<sup>1</sup> Barrio Güemes, Córdoba Argentina  
+
+---  
+## Al frete de la Ágora <!-- 26, October 2018 -->  
+Mi guitarra está cansada.  
+Pero me acuerdo tu tierra  
+y un tango.  
+Pará!  
+Escuchame entre estas  
+sombras.  
+Sentate…  
+Tengo una canción más  
+para regalarte.  
+Es griega y azul.  
+Como eran las estatuas  
+antes de Persépolis<sup>1</sup>.  
+La música se le  
+escapa caminando  
+con un bastón.  
+Arrastrada por turistas  
+y cámaras negras.  
+Que no tienen tiempo  
+en Atenas para un viejo  
+y un sombrero.  
+
+<sup>1</sup> Capital del imperio Persa (518 ac a 331 ac)  
+---  
+## Corrido del Piso 13 <!-- 2, September 2018 -->  
+Allá en la Sinaloa<sup>1</sup> de  
+gueras<sup>2</sup> sin sol.  
+Tres amigos y tres  
+botellas de ron.  
+Pa’ el ** pa’ el **** y  
+para Don Simón.  
+Sin cuernos de chivo<sup>2</sup>  
+ni kilos en el mostrador.  
+Los vasos pasaban  
+y se iba el ron.  
+Llamaron a tres doncellas.  
+Y le pidieron al señor,  
+que no sean rumanas  
+sin corazón.  
+Pagaron por tres  
+pero se quedaron dos.  
+*¡Es* *una* *mexicaneada*  
+*el* *rengo* *nos* *mintió!*  
+Seguimos siendo tres  
+y ellas dos.  
+
+<sup>1</sup> Londres  
+<sup>2</sup> Gringas  
+<sup>3</sup> Como se conocen a las AK-47 en Mexico  
+
+---  
+## May – Porcelana <!-- 6, August 2018  -->  
+No nos quisimos bonito<sup>1</sup>  
+cuando nos tocó.  
+Ya estabas acostumbrada a  
+miradas y piropos,  
+de mariachis y alemanes.  
+Y terminé siendo tu hotel en Londres  
+cuando no se acordaron de vos.  
+Ayer se te pasó entre tu ex,  
+sus amigos y pastillas de colores  
+en Hampstead Heath.  
+Esta noche you *look* *wonderful*  
+con ese vestido negro  
+y tus ojos azules.  
+La noche iba para gloria y  
+*vendettas* a mis últimos meses.  
+Pero siempre volves a ser vos,  
+al menos conmigo.  
+¿Qué te pasó entre ‘The Mitre’<sup>2</sup> y  
+Central London?  
+Le gritaste al pobre italiano  
+que borracho no te vio.  
+El bar no fue lo que esperabas.  
+Y *aquí* *no* *se* *puede* *comer*.  
+No es culpa de los niños  
+cuando rompen la porcelana  
+o el respeto.  
+Es de nosotros los adultos  
+que lo permitimos.  
+Ya es hora de que  
+me quiera bonito.  
+Chau.  
+
+<sup>1</sup> Parafraseando al gran poeta de los bares José Alfredo Jiménez en "Que te vaya bonito"  
+<sup>2</sup> Pub en Holland Park Londres  
+
+## May – Porcelain  <!-- 11, August 2018 -->  
+We did not love each other  
+*bonito*<sup>1</sup> when we had  
+the opportunity.  
+You were already used to  
+looks and compliments,  
+from mariachis and Germans.  
+And I ended up being your hotel in London,  
+when they did not remember you.  
+You let yesterday’s hours fade away  
+between your ex, his friends  
+and colorful pills in Hampstead Heath.  
+Tonight you look wonderful  
+with that black dress  
+and your blue eyes.  
+The night promised glory and  
+vendettas to my last months.  
+But you always go back to be  
+you again.  
+At least with me.  
+What happened to you  
+between ‘The Mitre’<sup>2</sup> and  
+Central London?  
+You shouted at that poor drunk Italian  
+that did not see you.  
+The bar was not what you expected.  
+And *here* *there* *is* *nothing* *good* *to8 *eat*.  
+It’s not the children’s fault  
+when they break the porcelain  
+or the respect.  
+It’s the adults’ fault  
+that allow it.  
+It’s my time to  
+love me *bonito*.  
+Bye.  
+
+<sup>1</sup> Bonito: beautifully. Paraphrasing the great Mexican poet José Alfredo Jiménez in "Que te vaya bonito"  
+<sup>2</sup> Pub in Holland Park London.  
+
+---  
+## Laila – Riga <!-- 19, June 2018 -->  
+Tu tierra tiene  
+trenes hacia el este<sup>1</sup> y  
+un espejo en dos idiomas<sup>2</sup>  
+Como mujer y abogada  
+no crees en los candados  
+que descansan en los puentes.  
+Las llaves no abren ni  
+cierran lo que se siente.  
+Te conocí entre risas.  
+Acá y ahora.  
+Lucifer y mi ayer  
+me engañaron para perderte.  
+Te busqué en Riga entre  
+tus iglesias y la luna.  
+En un cuadro del Greco  
+y en la Venus de Botticelli<sup>3</sup>.  
+Corrí en mi desesperación  
+a Villa Borghese.  
+El marmol estaba frio  
+y el galo moribundo<sup>4</sup>.  
+Te lloré usando  
+todas mis terapias.  
+De rodillas llamé  
+a una santa cruzada.  
+De Malta vinieron  
+caballeros y galeras.  
+Del Reino de Aragón  
+arcabuces y buen vino.  
+Hombres que te quisieron  
+y me entienden.  
+Tus inviernos no tienen  
+piedad de los cobardes.  
+Penitente te escribo  
+para disculparme.  
+Y darte una excusa  
+para volvernos a ver.  
+
+<sup>1</sup> Destierro forzado en gulags  
+<sup>2</sup> Dolor de una realidad en Latvian y ruso.  
+<sup>3</sup> Sos ella en persona.  
+<sup>4</sup> Dying Gaul en realidad está en el Musei Capitolini y no en Galleria Borghese que esta en Villa Borghese  
+
+## Laila – Riga <!-- 19, June 2018  -->  
+Your land has  
+trains to the east<sup>1</sup> and  
+a mirror in two languages<sup>2</sup>.  
+As a woman and a lawyer.  
+You do not believe in padlocks  
+laying on the bridges.  
+Their keys do not open nor  
+they close what anyone feels.  
+I met you between laughs.  
+Here and now.  
+Lucifer and my yesterday.  
+Tricked me to lose you.  
+I looked for you in Riga  
+halfway your churches and the moon.  
+In a painting by *El* *Greco*  
+and in Botticelli’s Venus<sup>3</sup>.  
+I ran in my despair  
+to Villa Borghese.  
+The marble was cold  
+and the Gaul was dying<sup>4</sup>.  
+I cried for you using  
+all my therapies.  
+On my knees,  
+I called for a holy crusade.  
+From Malta, came  
+knights and galleys.  
+From the Kingdom of Aragon  
+arquebuses and good wine.  
+Men who loved you  
+and understand me.  
+Your winters do not have  
+compassion for the cowards.  
+Penitent I write to you  
+to apologize.  
+And give you an excuse  
+to meet again.  
+
+<sup>1</sup> Forced exile in gulags  
+<sup>2</sup> Wound of a reality in Latvian and Russian.  
+<sup>3</sup> You are her in person.  
+<sup>4</sup> The Dying Gaul is actually in the Musei Capitolini not in Galleria Borghese that is in Villa Borghese  
+
+---  
+##  Azafatas <!-- 10, June 2018	 -->  
+Los que trabajan  
+nunca vuelan.  
+Cargan maletas y fiestas  
+en las bodegas.  
+Los pilotos los saludan.  
+Las azafatas los esperan.  
+Ellas escapan  
+de almas suaves  
+en flores y poetas.  
+De discursos de monarcas  
+y asambleas.  
+Ellas quieren que  
+las tiren en la cama.  
+Que se olviden que  
+están casadas.  
+Que sus niños las  
+esperan.  
+Los aviones las escuchan  
+y las entregan.  
+A manos gruesas  
+de sol y de arena.  
+Que cierran puertas  
+para ir a olvidar.  
+
+## Hostesses <!-- 27, June 2018  -->  
+Loaders never fly.  
+The pilots greet them.  
+While the hostesses  
+wait for them.  
+They escape from  
+soft souls in flowers  
+and poets.  
+From monarchs’ speeches  
+and assemblies.  
+They want to be thrown  
+on the bed.  
+They want to forgive  
+anyone waiting for them.  
+Let them leave behind  
+their families!  
+*Let* *them* *wake* *up*  
+*in* *a* *different* *language!*  
+*Let* *them* **  
+*faraway!*  
+The aeroplanes  
+acknowledge these  
+and hand them over.  
+To able hands of  
+dust and sun.  
+That close the doors  
+to go out and forget.  
+
+---  
+## En Bucarest  <!-- 30, May 2018  -->  
+Hay una sociedad secreta  
+en el centro de Bucarest.  
+Que se reune entre  
+iconos ortodoxos y  
+catedrales Griegas.  
+Evadieron el comunismo  
+denunciando al capitalismo.  
+Al empalador y a los policías  
+con canciones y rosas.  
+Es la sociedad de las  
+enanas lesbianas.  
+Se mueven sigilosas  
+entre políticos y putas.  
+Llaman a los turistas  
+a subir al cielo.  
+Donde las tetas son extra  
+y los masajes felices.  
+Pusieron una bala  
+en la cabeza de Ceaușescu<sup>1</sup>.  
+Pusieron una bala  
+al corazón de Bucarest.  
+Si el poder vuelve a  
+caer por gritos y profetas.  
+Y encuentro  
+el verdadero amor.  
+En una lengua  
+que me entienda.  
+Ellas volveran a ser  
+lo que fueron.  
+Ecos de un país.  
+Donde las esperanzas  
+y las iglesias  
+siempre son pequeñas.  
+
+<sup>1</sup> Dictador rumano  
+
+## Bucharest <!-- 24, June 2018 -->  
+There is a secret society  
+in Bucharest.  
+That meets between  
+orthodox icons and  
+Greek cathedrals.  
+They evaded communism  
+denouncing capitalism.  
+The Impaler<sup>1</sup> and the cops  
+with dances and songs.  
+It is the lesbian dwarf society.  
+They move stealthily  
+between politicians and whores.  
+They invite tourists to  
+ascend to heaven.  
+Where the tits are extra  
+and the massages are happy.  
+They put a bullet  
+in Ceauşescu’s<sup>2</sup> head.  
+They put a bullet  
+in Bucharest’s heart.  
+When the power will struggle  
+by screams and prophets.  
+And I’ll finally  
+find my true love.  
+In a language  
+that understand me.  
+They will be what they were.  
+Echoes of a country.  
+Where the hopes and churches  
+are always small.  
+
+<sup>1</sup> Vlad the Impaler  
+<sup>3</sup> Romanian Dictator  
+
+
+---  
+## Mar – Bucarest  <!-- 28, May 2018 -->  
+Tus siete futuros saben  
+el nombre que no  
+me permitiste escribir.  
+A tus veinte y pocos  
+todos son posibles.  
+Las copas de ayer  
+nos invitaron a conocernos  
+esta mañana.  
+Cuando le pediste a  
+*Bucarest* que nos espere  
+unas horas más  
+en aquella esquina.  
+Entre sombras de concreto socialista  
+y árboles a los que abrazar  
+en el bulevar.  
+Dijimos adiós mientras  
+volvías a soñar.  
+Con tierras ocres, azules  
+y amarillas.  
+De *Holi*<sup>1</sup> y tus primaveras.  
+
+
+
+<sup>1</sup> Festival Hindu de la primavera.  
+
+##  Sea – Bucharest <!-- 1, June 2018  -->  
+Your seven futures know  
+the name that you did not  
+allow me to write.  
+At your twenty and a few  
+all are possible.  
+The rounds of yesterday  
+encouraged us  
+to meet this morning.  
+When you asked  
+*Bucharest8 to wait for us.  
+A few more hours  
+in that corner.  
+Between shadows  
+of socialist concrete and  
+trees to hug in the boulevard.  
+We said goodbye  
+while you started  
+to dream again.  
+With ocher, blue and  
+yellow lands.  
+Of *Holi*<sup>1</sup> and your springs.  
+
+<sup>1</sup> Hindu festival of ‘colours’  
+
+---  
+## Emilia – Holborn IV <!-- 8, May 2018 -->  
+¿Fue dirijida a mi o  
+a los hombres en general?  
+¿Ves en tu injusticia  
+mi dolor en lo particular?  
+Valen esas dos horas,  
+seis tequilas y  
+un vodka lemonade.  
+¿Joder a quien te escribe?  
+¿Cual es el sentido de  
+del tiempo Emilia?  
+No continuo sino hecho  
+de encuentros.  
+Si elegís tirar el tiempo  
+y con el tiempo a mí.  
+A tu cartera esta noche  
+llena de billetes.  
+Y mañana  
+llena de grietas.  
+
+## Emilia – Holborn IV <!-- 10, May 2018 -->  
+Was it directed to me  
+or to the men as a whole?  
+Do you see my pain  
+in your injustice?  
+Were those  
+two hours,  
+six tequilas and  
+a vodka lemonade worth it?  
+They were enough to wound  
+the one who writes to you.  
+What is the meaning  
+of time Emilia?  
+When it is not continuous,  
+but made of connections.  
+If you choose to throw it away  
+in your purse.  
+Tonight full of bank notes  
+and tomorrow of rifts.  
+
+---  
+## Veneno  <!-- 6, May 2018 -->  
+Fui a escuchar poesía  
+pero encontré  
+*veneno* *de* *serpiente*  
+*sangre* *de* *piedra*.  
+Sinónimos solo para  
+entendidos.  
+Mas simples eran  
+las piernas de la pelirroja,  
+dueña de la librería.  
+Mas sueños en sus muslos.  
+Mejor olvidar como  
+leer y escribir.  
+Mejor sufrir por melancolía.  
+Mejor la pelirroja desnuda  
+que el paraíso de Borges<sup>1</sup>.  
+Los besos imaginarios  
+o con saliva.  
+Son mas lindos cuando  
+no hay que entenderlos.  
+
+<sup>1</sup> “Siempre imaginé que el Paraíso sería algún tipo de biblioteca.” Jorge Luis Borges  
+
+## Venom <!-- 21, May 2018 -->  
+I was looking for poetry  
+but I found.  
+*Snake’s* *venom*  
+*Stone’s* *blood*.  
+Synonyms only for  
+the stubborn.  
+Much simpler were  
+the ginger’s legs.  
+Red owner of the bookstore.  
+It’s better to forget how  
+read and write.  
+It’s better to suffer  
+for melancholy.  
+It’s better to sleep next to her  
+than a future at Borges’ paradise<sup>1</sup>.  
+The imaginary kisses  
+or the real ones.  
+Are more appealing when  
+there is no need to translate them.  
+
+<sup>1</sup> “I have always imagined that Paradise will be a kind of library.” Jorge Luis Borges  
+
+---  
+## Praga  <!-- 29, April 2018 -->  
+Vine a Praga y me acorde  
+de Bratislava<sup>1</sup>  
+Monika prefiere el Danubio  
+al Moldava.  
+La ciudad vieja siempre  
+es mejor sin turistas.  
+Llena de checas con  
+vestidos grises y zapatos altos.  
+Éramos doce contando  
+al que se casaba.  
+Doce juntos y uno al  
+patíbulo.  
+Once hombres del Norte de Italia  
+más un poeta.  
+El alcohol lo compartimos.  
+Las risas y los cafés  
+fueron sinceros.  
+Eligieron no tentarse  
+con cuerpos blancos sin sol.  
+Yo siempre elijo vivir.  
+La testosterona en grupo  
+el *calcio* y la *Juve*.  
+Son recetas para no hablar  
+de lo que nos pasa.  
+Seba no cree en reglas  
+y me bajó de la cruz  
+sin disculpas.  
+No había mapas llenos  
+de torres en el castillo  
+de Praga.  
+Para ayudarme a  
+perdonarme.  
+Solo Seba y un  
+*¿Como* *estas?*  
+Dejé Praga sin uniforme  
+de almirante.  
+Dejé el Moldava en  
+barquito de papel.  
+
+<sup>1</sup> Termine el poema a 'Monika – Valletta' en el hotel ni bien llegué a la ciudad  
+
+## Prague <!-- 2, May 2018 -->  
+I came to Prague and  
+I remembered Bratislava<sup>1</sup>.  
+Monika prefers the Danube  
+to the Vltava.  
+The old city is always  
+better without tourists.  
+Full of Czechs girls with  
+grey dresses and high heels shoes.  
+We were twelve counting  
+the one that was going to get married.  
+Twelve together and one  
+to the gallows.  
+Eleven men from Northern Italy  
+and one poet.  
+We shared our alcohol.  
+The laughter and cafes  
+were sincere.  
+They chose not to be tempted  
+by white bodies without sun.  
+I always choose to live on the verge.  
+The wolf pack’s testosterone  
+the *calcio*<sup>2</sup> and the *Juve*<sup>3</sup>.  
+Are recipes for not talking  
+of what happens to us.  
+Sebastian does not believe in rules  
+and got me off of my cross  
+without apologies.  
+There were no maps  
+with towers on Prague’s castle.  
+To help me to forgive myself.  
+Only Sebastian and one  
+*How* *are* *you?*  
+I left Prague without  
+my admiral’s uniform.  
+I left the Vltava in  
+a paper boat.  
+
+<sup>1</sup> I finished Monika’s poem ('Monika – Valletta') at the hotel as soon as I arrived to the city  
+<sup>2</sup> *calcio* football in Italian  
+<sup>3</sup> *Juve* Juventus  
+
+---  
+## Monika – Valletta <!-- 27, April 2018 -->  
+Mártires y vírgenes rojas  
+sin corazón.  
+Petardos a la procesión y  
+a las estátuas.  
+Hoy no hay siesta para nadie.  
+La vida entera entre cafés  
+y *Aperol* *Spritz*.  
+El sol guiándome a la  
+mesita de al lado y  
+a vos Monika.  
+Ohh la historia me puede  
+me gana me conmueve.  
+Que placer es respirar el aire  
+lleno de arcabuces.  
+Ayer pasa, mientras pregunto.  
+*¿De* *que* *aeropuertos* *venis*  
+*morocha* *de* *Bratislava?*  
+*¿Qué* *tren* *me* *lleva* *de*  
+*Córdoba* *a* *Slovakia?*  
+*¿Besaste* *en* *español?*  
+Que rico se está con vos y Tina.  
+Esto se merece varias rondas más.  
+Bailemos detrás de los de los devotos  
+de San Juan de Jerusalén.  
+La música de la alegría  
+de mi tierra.  
+Prometamos tres votos de  
+castidad a tus dudas  
+y a mis hojos.  
+Que Santa Ana envidie tu felicidad  
+sin pactos de Varsovia  
+ni muros en Valetta.  
+Este es nuestro tiempo.  
+Y no mañana y no hace meses  
+cuando llegaste.  
+Seguimos con whiskey  
+on the *rocks* y tabaco cubano.  
+Pero la historia siempre  
+se repite en Malta.  
+Y comprendí triste  
+a Suleiman el magnífico  
+en Lepanto+.  
+Construir galeras en el  
+Mediterráneo no es lo mismo  
+que comandarlas en victórias.  
+
+<sup>1</sup> Batalla entre la “Liga Santa” y el imperio Otomano en 1571. Suleiman el magnífico en realidad murió en 1566. El sultán en Lepanto era Selim II “el borracho”  
+
+##  Monika – Valletta  <!-- 2, May 2018 -->  
+Martyrs and red heartless virgins.  
+Firecrackers to the procession and  
+to the saints.  
+My whole life between coffees  
+and *Aperol* *Spritz* on this city break.  
+The sun guiding me to the  
+side table and to you Monika.  
+Ohh the history of this island  
+overwhelmed me.  
+What a pleasure it is to breathe the air  
+full of arquebuses.  
+While yesterday goes away I wonder.  
+*From* *what* *airports* *do* *you* *come* *from*  
+*brunette* *from* *Bratislava?*  
+*What* *train* *takes* *me* *from*  
+*Cordoba* *to* *Slovakia?*  
+*Did* *you* *kiss* *in* *Spanish?*  
+I feel just fine between you and Tina.  
+This deserves several more rounds.  
+Let’s dance behind those devotees  
+of St. John of Jerusalem.  
+The music of my land.  
+Let’s promise three votes of  
+chastity to your doubts  
+and to my eyes.  
+May Santa Ana envy your happiness  
+without Warsaw pacts  
+or Berlin walls in Valetta.  
+This is our time.  
+And not tomorrow and not months ago  
+when you came alone.  
+We continued with whiskey  
+on the rocks and Cuban tobacco.  
+But the history always  
+repeats itself in Malta.  
+Gloomily I understood in full the loneliness  
+of Suleiman the magnificent  
+in Lepanto<sup>1</sup>.  
+Building galleys in the  
+Mediterranean is not the same  
+than command them to victories.  
+
+<sup>1</sup> Battle between the “Holy League” and the Ottoman Empire in 1571. Suleiman the Magnificent actually died in 1566. The Sultan in the battle of Lepanto was Selim II “the drunkard”  
+---  
+## Las velas marcharon <!-- 17, April 2018  -->  
+Espadas curvas se tiñen de  
+cruces de Malta.  
+Jerusalem y Santa Ana  
+lloran a los mutilados<sup>1</sup>.  
+Perdimos Rodas<sup>2</sup> gritan los cuerpos  
+sin cabeza en la gran bahía.  
+Mejor morir que perder Malta  
+gritan las cabezas sin cuerpo,  
+en la puerta del socorro<sup>3</sup>.  
+Los cañones vengan  
+a los que custodiaban San Telmo.  
+Cuando las virtudes se visten de caballeros  
+y San Juan de Valetta<sup>4</sup>.  
+*No* *busquen* *preceptos*  
+*entre* *los* *muros* *agrietados*.  
+*No* *busquen* *luz* *entre* *tantas*  
+*piedras*.  
+*No* *busquen* *rosarios* *en* *los*  
+*dedos* *llenos* *de* *pólvora*.  
+*Ni* *en* *las* *manos* *de* *los* *que*  
+*nadando* *escaparon*.  
+A la orden solo se entra por  
+designio divino.  
+Al altar de Santa Ana  
+por las pocas espadas que  
+lo defendieron<sup>5</sup>.  
+*Que* *la* *virgen* *nos* *proteja*.  
+*Que* *los* *muertos* *entierren*  
+*a* *los* *muertos*<sup>6</sup>.  
+Valetta grita rejuvenece y envejece  
+entre ataques infieles al valor  
+que le queda.  
+Desde Sicilia el viento trae  
+arcángeles llenos de gracia  
+y a García de Toledo Osorio.  
+Frente a tanta hidalguía  
+de la provincia de León y  
+sangre nueva para la guerra.  
+Las velas parten, sin tierras nuevas  
+a Estambul.  
+
+<sup>1</sup> Gran Asedio de Malta 1565  
+<sup>2</sup> Expulsión de la Soberana y Militar Orden Hospitalaria de San Juan de Jerusalén de Rodas y de Malta 1523  
+<sup>3</sup> Puerta del fuerte San Telmo usada para recibir refuerzos durante el gran asedio.  
+<sup>4</sup> Jean Parisot de la Valette, gran maestre de la Orden de Malta durante el Gran Asedio 1565  
+<sup>5</sup> Caballeros y capellanes dieron ultima batalla defendiendo el altar. Las reliquias de Santa Ana se encontraban en la capilla traídas por los caballeros de Malta en 1530.  
+<sup>6</sup> Lucas 9:60  
+
+## Sails – Malta <!-- 6, May 2018 -->  
+Curved swords are dyed  
+on Maltese crosses.  
+Jerusalem and St. Anne  
+mourn the mutilated<sup>1</sup>.  
+We lost Rodas<sup>2</sup> scream the  
+headless bodies in the grand harbour.  
+Better to die than to lose Malta  
+scream the disembodied heads,  
+at the *porta* *del* *soccorso*<sup>3</sup>.  
+The cannons revenge  
+those who were guarding St. Elmo.  
+When the virtues dressed as knights  
+and St John as Valette<sup>4</sup>.  
+*Do* *not* *look* *for* *precepts*  
+*between* *the* *cracked* *walls*.  
+*Do* *not* *look* *for* *light*  
+*among* *so* *many* *stones*.  
+*Do* *not* *look* *for* *rosaries* *in*  
+*fingers* *full* *of* *gunpowder*.  
+*Not* *in* *the* *hands* *of* *those* *who*  
+*swimming* *escaped*.  
+You can only enter the order  
+by the act of God.  
+To the altar of St. Anne  
+through the few swords  
+that defended it<sup>5</sup>.  
+*Let* *the* *Virgin* *protect* *us*.  
+*Let* *the* *dead* *bury*  
+*the* *dead*<sup>6</sup>.  
+Valette screams rejuvenate and ages  
+between infidel’s attacks on his values.  
+From Sicily the wind brings  
+archangels full of grace  
+and García de Toledo Osorio.  
+In front of so much nobility  
+from the province of León and  
+new blood for the war.  
+The sails leave, without new lands  
+to Istanbul.  
+
+
+<sup>1</sup> Great Siege of Malta 1565  
+<sup>2</sup> Expulsion of the Sovereign and Military Hospitable Order of St. John of Jerusalem from Rhodes and Malta 1523  
+<sup>3</sup> Fort St. Elmo’s door used to receive reinforcements during the great siege.  
+<sup>4</sup> Jean Parisot de la Valette, Grand Master of the Order of Malta during the Great Siege of 1565  
+<sup>5</sup> Knights and chaplains gave final battle defending the altar. The relics of St. Anne were in the chapel brought by the Knights of Malta in 1530.  
+<sup>6</sup> Luke 9:60  
+---  
+## Agua <!-- 9, March 2018 -->  
+¿Donde vas agua fria de lluvia  
+entre Trastevere<sup>1</sup> y mi paraguas?  
+El poeta de poetas<sup>2</sup>  
+siempre te llevo a ríos  
+y mares que no me conocen.  
+Entre torres de moros, olivares  
+y sangre de gitanos.  
+La gravedad de la ley.  
+Te quita la libertad de ir a besar  
+a Tripoli y a Nicosia a tu antojo.  
+No mira tu realeza  de cielo con nubes,  
+y tus ojos de volcanes activos.  
+Te propongo que juntes  
+a cada gota de polo a polo.  
+A cada par de átomos de hidrógeno  
+y uno de oxígeno.  
+Que formes legiones.  
+Afiles tus espadas y  
+prepares tus sandalias.  
+La hora a llegado.  
+No se puede siempre mostrar  
+la otra mejilla.  
+El enemigo no se apiada  
+de tus deseos ni de tus hijos.  
+Borra la fuente de esa fuerza.  
+Quiebra la fuente de esa fuerza.  
+*Damnatio* *memoriae*<sup>3</sup> toda esa fuerza.  
+No bailes entre sus estatuas  
+ni participes en sus fiestas.  
+Deja de ser cómplice.  
+¡Que hasta en su vino  
+se te puede encontrar!  
+Cuando la batalla esté terminada.  
+Las tablas de la ley rotas.  
+Y el viejo orden de rodillas.  
+Apiádate de mi que esta tarde en Roma.  
+No tengo más que estatuas sin colores<sup>4</sup>  
+y tu compañía.  
+
+<sup>1</sup> Roma  
+<sup>2</sup> Federico Garcia Lorca  
+<sup>3</sup> “Condena de memoria” durante el Imperio Romano.  
+<sup>4</sup> Muchas estatuas de la antiguedad estaban pintadas.  
+
+## Water <!-- 2, April 2018  -->  
+Where do you go cold rainwater  
+between Trastevere<sup>1</sup> and my umbrella?  
+The poet of poets<sup>2</sup> has always taken you  
+to rivers and seas that do not know me.  
+Between towers of moors, olive groves  
+and gypsies’ blood.  
+The gravity of the law takes away  
+the freedom of kissing  
+Tripoli and Nicosia at your will.  
+Do not look at the greatness of  
+your cloudy skies,  
+and your active volcano eyes.  
+I urge you to unite  
+each drop from pole to pole.  
+Each pair of hydrogen atoms  
+and one of oxygen.  
+To form legions.  
+To sharp your swords and  
+prepare your sandals.  
+The time has arrived.  
+You can not always show  
+the other cheek.  
+The enemy does not considerate  
+your wishes or your children.  
+Clear the source of that force.  
+Break the source of that force.  
+*Damnatio* *memoriae*<sup>3</sup> all that strength.  
+Do not dance among their statues  
+Do not participate in their parties.  
+Stop being an accessory.  
+That even in their wine  
+you can be found!  
+When the battle will be over.  
+The tables of the law broken.  
+And the old order kneeling.  
+Take pity on me that this afternoon in Rome.  
+I have only colorless statues<sup>4</sup>  
+and your company.  
+
+<sup>1</sup> Rome  
+<sup>2</sup> Federico Garcia Lorca  
+<sup>3</sup> “Condemnation of memory” during the Roman Empire.  
+<sup>4</sup> Many statues of antiquity were painted.  
+
+---  
+##  Emilia – Holborn III <!-- 3, February 2018 -->  
+El perfume en Holborn siempre  
+tiene colores de flores.  
+De flores de veinte libras  
+los tres minutos.  
+De flores *Vodka* *lemonade*.  
+Corpiños negros y  
+zapatos plataforma.  
+Mesas sin KGB ni espías.  
+Música de ascensores de oficina.  
+*You* *have* *been* *connected* *with* *WebEx*<sup>1</sup>…  
+Propinas al Cantar de los Cantares<sup>2</sup>.  
+Desfiles sin aviones ni presidentes.  
+Y esas piernas tan blancas de Emilia.  
+Que hacen que Londres sea  
+infinitamente más vivible.  
+
+<sup>1</sup> Cisco Connect  
+<sup>2</sup> Cantar de los Cantares (hebreo שִׁיר הַשִּׁירִים, Shir Hashirim)  
+
+## Emilia – Holborn III <!-- 4, February 2018 -->  
+The perfume in Holborn*  
+always has flower colors.  
+Flowers of *twenty* *pounds*  
+for three minutes.  
+Flowers of *vodka* *lemonade*.  
+Black bras and  
+platform shoes.  
+Tables without KGB or spies.  
+Elevator music in the background.  
+*You* *have* *been* *connected* *with* *WebEx*<sup>1</sup>…  
+Parades without tanks or presidents.  
+And those white legs of Emilia.  
+That makes London  
+infinitely more livable.  
+
+<sup>1</sup> London district  
+<sup>2</sup> Cisco Connect  
+
+---  
+## Papá <!-- 14, January 2018  -->  
+Del oficial  
+del alcaide mayor,  
+de tu sable  
+de tu uniforme,  
+de los bigotes  
+de la autoridad,  
+del grito de gol  
+de tu Boca Juniors,  
+del asado los domingos,  
+de tu dulce de leche  
+de dos kilos,  
+de los viajes a  
+Córdoba los cinco,  
+del cambio de ciudades  
+por tu trabajo.  
+Sentado frente a vos,  
+mientras esperamos  
+el medico después  
+de tu trasplante  
+y la quimio.  
+De todo eso  
+no encuentro  
+nada.  
+
+(Inspirado en un poema de Joaquin Sabina, en su libro Ciento Volando de Catorce)  
+
+---  
+## Camila – Redención <!-- 13, January 2018 -->  
+La herida en mi costado<sup>1</sup>  
+y el poema a Cecilia<sup>2</sup>.  
+La noche que no me vio.  
+Hicieron que las primeras  
+tres pints llamaran a las  
+siguientes dos cuando tu  
+amiga te guiñó el ojo y se fue.  
+
+Desplegué mis mejores plumas  
+y más cervezas para despertar  
+tu espíritu de artista y *Magdalena*<sup>3</sup>.  
+
+Tengo sed te dije recayendo  
+con mi cruz y pusiste el agua  
+y el vinagre sobre mi boca<sup>4</sup>.  
+Que solo das en años bisiestos.  
+
+Hablamos y nos reímos.  
+Borrachos de encontrarnos.  
+Soñé entre tus piernas y el arte  
+de tus manos.  
+*La* *grande* *bellezza* de Roma.  
+Casas con mil tonalidades de pasteles  
+en Trastevere.  
+
+El viento zonda<sup>4</sup> y las cortinas  
+abiertas después de la ducha.  
+Brindaron dignidad  
+al café de esta mañana.  
+
+<sup>1</sup> Juan 19:34  
+<sup>2</sup> "Ceci – Pasos"  
+<sup>2</sup> Juan 20:18  
+<sup>3</sup> Juan 19:28-29  
+<sup>4</sup> Viento calido en la cordillera de los Andes Argentina.  
+
+## Camila <!-- 30, January 2018 -->  
+The wound on my side  
+and Cecilia’s poem<sup>1</sup>.  
+Made the first three pints call the  
+next two when you  
+friend winked at you and left.  
+I deployed my best feathers  
+and more beers to wake up  
+your Mary Magdalene spirit.  
+I’m thirsty I told you,  
+tumbling with my cross.  
+You put the water  
+and the vinegar on my mouth<sup>2</sup>.  
+That you only give in leap years.  
+We talked and we laughed.  
+Drunk to meet each other.  
+I dreamed between your legs and the art  
+from your hands  
+*La* *grande* *bellezza* of Rome.  
+The Zonda wind<sup>3</sup> and the curtains  
+opened after the shower.  
+Offered dignity  
+to this morning coffee.  
+
+<sup>1</sup> Read "Ceci - Steps"  
+<sup>2</sup> John 20:18  
+<sup>3</sup> Warm wind in the Andes mountains Argentina.  
+
+---  
+## Ceci – Pasos <!-- 26, December 2017  -->  
+Pasaron ciudades y cartas  
+de tu puño y letra.  
+Tres Papas, dos torres gemelas,  
+Afganistán, Ucrania y el estado islámico.  
+Presidentes, gobernadores, diputados.  
+Varias plazas de Mayo<sup>1</sup>.  
+
+Elecciones equivocadas.  
+Un tsunami, intifadas y  
+cuerpos desnudos de terceros.  
+
+Tu foto *FujiFilm*<sup>2</sup> que me llegó por  
+carta y que marqué en mi álbum  
+con lápiz negro.  
+Llamadas *sube* *y* *baja* después  
+de cenar desde teléfonos públicos.  
+
+La noche que no viajé  
+y te traicioné en Córdoba.  
+El olvido que no me pasa  
+con vos Cecilia.  
+
+Barcelona donde me faltaron  
+horas de terapia para poder  
+llorar en tu sofá cama.  
+
+New York donde nos sentamos  
+en el piso de aquella librería  
+tan bonita.  
+
+Este bus infinito en el  
+que no puedo dormir y  
+te escribo.  
+
+La ansiedad de que en minutos  
+y no años nos veremos.  
+
+Y mañana pasará cuando te vuelva  
+a ver, entre vasos de vino<sup>3</sup>  
+y aquello que no pasó.  
+(Matando toda poesia, no pasó<sup>4</sup>)  
+
+<sup>1</sup> Plaza donde se realizan manifestaciones en Argentina  
+<sup>2</sup> Año del Juvileo 2000  
+<sup>3</sup> Mendoza – Argentina  
+<sup>4</sup> La misma noche conoci a Camila, leer "Camila – Redención"  
+
+## Ceci – Steps <!-- 29, January 2018 -->  
+Passed away few cities and  
+your hand-writings letters.  
+Three Popes, two twin towers,  
+Afghanistan, Ukraine and the Islamic state.  
+Presidents, governors, Russians and deputies.  
+Several *plazas* *de* *Mayo*<sup>1</sup>.  
+
+Wrong choices.  
+A tsunami, intifadas and  
+third parties naked bodies.  
+
+Your photo FujiFilm<sup>2</sup> that came to me  
+by post and I marked on my album  
+with a black pencil.  
+Calls ‘*up* *and* *down*‘ after  
+diner from public telephones.  
+
+The night I did not travel  
+and I betrayed you in Cordoba.  
+The forgetfulness that does not happen  
+with you Cecilia.  
+
+Barcelona where I fell short of  
+enough *therapy* to be able  
+cry on your sofa bed.  
+
+New York where we sat  
+on the floor of that cute bookstore  
+on December.  
+
+This infinite bus in which  
+I can not sleep and  
+I am writing to your future.  
+
+The anxiety that in minutes  
+and not years we’ll see each other again.  
+
+And tomorrow will pass when I will  
+finally return to you, between glasses of wine<sup>3</sup>  
+and what did not happen yet.  
+(Killing all poetry, it did not happen<sup>4</sup>)  
+
+<sup>1</sup> Plaza where demonstrations are held in Argentina  
+<sup>2</sup> Year of the Great Jubilee (2000)  
+<sup>3</sup> Mendoza Argentina  
+<sup>4</sup> That was the night I meet Camila read "Camila"  
+
+---  
+## Verano <!-- 30, August 2017  -->  
+Agua sobre agua  
+piedras molidas, calcio y  
+sudor de esclavos que se mezclan.  
+Tinta en papél, anotando,  
+calculando, prediciendo.  
+Andamios temporales que  
+vibran con el peso del mortero.  
+Centímetro a centímetro, gramo a gramo,  
+arbol a arbol, montaña a montaña.  
+Acueductos que se crean  
+expanden, ambicionan.  
+Puentes que los siguen y los preceden.  
+Legiones que beben de tus fuentes  
+antes de marchar sobre *Gallia*<sup>1</sup>.  
+Puertos en todas la peninsula  
+para doblegar al *mare* *nostrvm*<sup>2</sup>.  
+Trigo africano en los panes romanos.  
+Plata de inglaterra con la  
+cara estampada del emperador.  
+La ambición no tiene límites  
+hasta que los tiene.  
+Y comenzás a ver mas el  
+espejo que la ventana y la puerta.  
+Y los palacios y Lucca<sup>3</sup> y  
+*e‘* *bella* *l’Italia*  se repiten mientras  
+tus estudiantes son eternos.  
+Los países se van haciendo pequeños  
+de a poco, entre el fútbol, el fascismo y  
+las cinco estrellas del populismo<sup>4</sup>.  
+Camino y no encuentro en tus  
+calles y cafes hambre de gloria.  
+Deseos de vivir, de salvar lo que se pierde.  
+Mientras debatís la injusticia del destino,  
+tus acueductos muros y personas.  
+Mueren grieta a grieta,  
+casa a casa, verano a verano.  
+
+<sup>1</sup> Conquistada por Julio Cesar 58-51 AC  
+<sup>2</sup> Mare nostrum, Mediterraneo  
+<sup>3</sup> Ciudad en toscania  
+<sup>4</sup> Movimento 5 Stelle  
+
+## Summer <!-- 13, February 2018 -->  
+Water over water  
+pebbles, calcium and  
+the sweat of slaves mixed.  
+Ink over paper, writing down,  
+calculating, predicting.  
+Temporary scaffolding vibrating  
+with the weight of the mortar.  
+Centimeter a centimeter, gram by gram,  
+tree to tree, mountain to mountain.  
+Aqueducts that are created  
+expanded, that aspire…  
+Bridges that follow and precede them.  
+Legions that drink from your fountains  
+before marching on *Gallia*<sup>1</sup>.  
+Ports in all the peninsula  
+to bend the *mare* *nostrvm*<sup>2</sup>.  
+African wheat in the Roman loaves.  
+Silver from England with the  
+stamped face of the emperor.  
+The ambition has no limits  
+until it has them.  
+And you start to see more the  
+mirror than the door.  
+And the palaces and Lucca<sup>3</sup> and  
+*e‘* *bella* *l’Italia* repeats itself ad infinitum.  
+The countries are becoming small  
+little by little, between football, fascism and  
+the five stars of populism<sup>4</sup>.  
+I walk and I can not find in your  
+coffee shops hungry for glory.  
+Desires to live, to save what has been lost.  
+I can only hear academic debates about the oppression of history.  
+While your aqueducts, walls, and people  
+die without hope.  
+
+<sup>1</sup> Conquered by Julio Cesar 58-51 BC  
+<sup>2</sup> Mare nostrvm, Mediterrean sea  
+<sup>3</sup> City in Toscany  
+<sup>4</sup> Movimento 5 Stelle  
+
+---  
+## Dos y Dos <!-- 15, August 2017 -->  
+Admiro a mujeres desnudas  
+en islas de supermercado.  
+Mamás judías de pelo rizado<sup>1</sup>  
+los viernes después de las diez  
+cuando abren los descuentos<sup>2</sup>.  
+Tatuajes de rosario entre  
+pechos morenos.  
+Pantalones negros después del  
+gimnasio.  
+Tangas de verano.  
+Mujeres fatales con cargos ejecutivos.  
+Te pienso mientras a mi segundo  
+doble<sup>3</sup> lo interrumpe  
+la señal de turbulencia.  
+Y mi gin & tonic demanda  
+un all or nothing.  
+Nuestros días siempre  
+son bom Dia, minina.  
+Y si en el futuro dos y dos  
+somos tres.  
+Que traigan copas  
+y alegrías.  
+
+<sup>1</sup> Ortodoxas de pelucas risadas  
+<sup>2</sup> Asda  
+<sup>3</sup> Single Malt  
+
+## Two and Two  <!-- 17, February 2018 -->  
+I admire naked women walking  
+among supermarket islands.  
+Curly-haired Jewish moms<sup>1</sup>  
+each Fridays after ten,  
+when the reductions start<sup>2</sup>.  
+Rosary tattoos between  
+dark breasts.  
+Black leggings after the gym class.  
+Summer thongs.  
+Fatal women on executive positions.  
+I remember you while my second  
+double<sup>3</sup> its interrupted  
+by the turbulence signal.  
+And my gin & tonic demands  
+an all or nothing.  
+Our days are always  
+bom dia, *minina*<sup>4</sup>.  
+If in the future two and two  
+becomes three.  
+Let them bring  
+drinks and joys.  
+
+
+
+<sup>1</sup> Orthodox wigs  
+<sup>2</sup> Asda  
+<sup>3</sup> Single Malt  
+<sup>4</sup> Good morning girl – in Portuguese  
+
+---  
+## Autofoto  <!-- 20, June 2017 -->  
+Ayer caminamos  
+de la mano mamá.  
+Fuimos al bar con sol  
+en las mesitas.  
+A dos cuadras de la  
+casa de Lore en San Isidro.  
+Lila te miraba como cuando  
+tenías seis años  
+y cantabas en la radio.  
+Cuatro generaciones  
+y un autito rojo  
+de Pedrito<sup>1</sup>.  
+Chocolate para él,  
+café con leche para vos.  
+Te alegró saber  
+que soy feliz con Ana.  
+Que es buena y me quiere.  
+Pero en la *selfie* ya no estabas.  
+Y quise llorar,  
+porque las mamás no  
+deben dejar a sus hijos  
+ni por el Alzheimer.  
+
+<sup>1</sup> Pedrito es tu nieto, mamá.  
+
+## Selfie <!-- 10, January 2018 -->  
+Yesterday we walked  
+holding hands, mum.  
+We went to a bar  
+with sunny tables.  
+Two blocks away from  
+Lore’s house in San Isidro.  
+Lila looked at you as if  
+you were six years old.  
+Singing on the radio.  
+Four generations and  
+Pedrito’s<sup>1</sup> little red car.  
+Chocolate for him  
+latte for you.  
+You were happy to know  
+that I am happy  
+with Ana.  
+That she is good to me  
+and she loves me.  
+But in our selfie,  
+you were no more.  
+And I wanted to cry  
+because mums should never  
+leave their children.  
+Not even for their Alzheimer’s.  
+
+<sup>1</sup> Pedrito is your grandson mum.  
+
+---  
+## Deconstruir<sup>1</sup> <!-- 26, September 2016  -->  
+Deconstruir la voz  
+de la intención.  
+Desgarrar el corazón  
+de las vocales.  
+Renunciar a todo tipo  
+de evolución humana.  
+Me propusiste sobre  
+el mar que habla portugués.  
+Pero donde estaba la metafísica  
+cuando había que clavarle  
+una lanza al mamut.  
+O partir el átomo entrando  
+a empujones en la *central* *line*  
+para ir a la oficina.  
+*Get* *the* *job* *done*,  
+no entiende de teorías.  
+A veces deconstruyo  
+el Alzheimer de mi mama.  
+Su memoria de sus abrazos,  
+la distancia de mi familia.  
+Y el amor que pagué  
+de tus miedos.  
+Entonces deconstruir no es  
+un *essay*, es personal.  
+Me hablas entre dos Gin & Tonic.  
+El tono de tus palabras se  
+deconstruye en mis ojos.  
+Y solo resta que en un desliz  
+de tus mundos académicos  
+te desnudes y me esperes.  
+
+<sup>1</sup> Jugando con  el titulo de una cacion de Chico Buarque – Construção  
+
+## Deconstruct<sup>1</sup>   <!-- 26, September 2016  -->  
+Deconstruct the voice from  
+the intention.  
+Rip apart the heart  
+from the vowels.  
+Give up on the  
+human evolution.  
+You proposed it to me  
+over the sea that speaks Portuguese.  
+But where was the metaphysic  
+when we have to spike  
+with a spear the Mammoths.  
+Or split the atom pushing our  
+way into the *central* *line*  
+to go to the office.  
+*Get* *the* *job* *done*,  
+does not understand theories.  
+Sometimes I deconstruct  
+the Alzheimer’s from my mom,  
+her memory from her hugs.  
+The distance from my family.  
+And the love I had paid  
+from your fears.  
+Then to deconstruct is not  
+an *essay* is personal.  
+You’re talking over two Gin & Tonic.  
+The tone of your words  
+deconstructs on my eyes.  
+And the only thing that remains.  
+Is an oversight of your academic worlds  
+for you to undress and wait for me.  
+
+<sup>1</sup> Deconstruc… as well the title of a song by  Chico Buarque – Construção  
+---  
+## Ana: Porto & Lisboa <!-- 21, August 2016 -->  
+Bromas “*I* *joke*” en  
+ingles *novo*.  
+Ternura de vestido blanco  
+con resacas.  
+Subir y bajar estas putas  
+infinitas cuestas de Porto,  
+con mis mocasines de turista.  
+Tres besos de vino y  
+volvernos a querer.  
+Esta noche te reencuentro en Lisboa.  
+Uso todas mis seciones  
+de terapia y dejo que la  
+vida me abrace.  
+Escuchandote decir  
+“*menino* *ten* *que* *dormir*”  
+
+---  
+## Ana <!-- 27, July 2016 -->  
+Espero despertarte para  
+prepararte el desayuno.  
+Faltan segundos y  
+dos estrellas suicidas…  
+Ondas gravitatorias  
+olas gravitatorias  
+espacio-tiempo ahora.  
+Las ecuaciones astrofísicas  
+no mienten.  
+Mientras las estrellas estén  
+ocultas por nubes inglesas  
+y vos *menina* por mis sábanas.  
+Las muevo y me felicito  
+por tener tus piernas y  
+tus pechos blancos de vía láctea.  
+A *palabras* de mis manos.  
+A *deseos* de mis manos.  
+*Jueguen* con tus muslos y  
+*bailen* con tus pezones les ordeno.  
+Giras con tus ojos cerrados  
+para besarme en portugués  
+de un pueblo entre montañas.  
+Y las *supernovas*<sup>1</sup> junto al  
+Cosmos sin Carl Sagan ni futuro.  
+Deben esperar lo que nos lleve querernos.  
+Para compartir nuestro café.  
+
+<sup>1</sup> Algunas estrellas al morir crean una supernova.  
+
+## Ana <!-- 7, August 2016 -->  
+I wait to wake you up  
+before I make your breakfast.  
+Count down of few seconds  
+and two suicide stars…  
+Gravitational waves  
+surfing waves  
+space-time now.  
+The astrophysical equations  
+do not lie.  
+While the stars remain  
+hidden by English clouds  
+and you *menina*<sup>1</sup>  by my sheets .  
+I move them and I congratulate  
+my self for having your legs and  
+your white milky way breasts.  
+Just a *word* away from my hands.  
+A *desire* away from my hands.  
+Play with your thighs and  
+*dance* with your nipples  
+I ordered them.  
+You tours with your eyes closed  
+to kiss me in a Portuguese  
+of village between mountains.  
+And the supernovae<sup>2</sup>  with  
+the *Cosmos* without  
+Carl Sagan and future.  
+Abide the time it will take us  
+to love each other.  
+Before sharing our coffee.  
+
+<sup>1</sup>  Girl in Portuguese  
+<sup>2</sup>  Some dying stars create a supernova.  
+
+---  
+## El Vedado <!-- 9, April 2016  -->  
+En la Avenida de los  
+Presidentes.  
+Pies sin nombres ni  
+batallas quedan.  
+Al bronce lo amputaron,  
+al bronce lo mataron<sup>1</sup>.  
+Sal de tormentas en el Malecón,  
+donde las estatuas tenían sus espaldas.  
+Mar agitado de despedidas.  
+Acepté que no venías.  
+Y me entristecí junto a las  
+estatuas sin pecho.  
+Pensando en las embajadas y sus  
+cenas de amantes en Miramar<sup>2</sup>.  
+Si no venís. ¿Pasó lo que pasó?  
+¿Puede derretirse el bronce con penas?  
+¿Inventarse nuevos mártires a tu pasado?  
+¿Nuevos colores a la bandera?  
+¿Tragedias a la patria grande?  
+Pero llegaste antes que mi  
+taxi partiera.  
+Y nos despedimos Ariana en la  
+cama donde nos conocimos.  
+
+<sup>1</sup> La Revolución (1959) derribó las estatuas de presidentes no gratos para la nueva historia.  
+<sup>2</sup> Barrio de embajadas en La Habana Cuba.  
+
+
+## Vedado <!--19, April 2016  -->  
+On the President’s Avenue.  
+Feet without names or  
+battles remain.  
+They amputated bronze,  
+the bronze was killed<sup>1</sup>.  
+Salt storms on the *Malecón*<sup>2</sup>,  
+where the statues had their backs.  
+Rough sea of farewells.  
+I admitted you were not coming.  
+And I became sad next to the  
+chestless statues.  
+Thinking on the embassies and their  
+dinners for lovers in *Miramar*<sup>3</sup>.  
+If you do not come.  
+Did it happen what happened between us?  
+Can the bronze be melted with grief?  
+Can the present invent new martyrs to your pass?  
+Add new colors to the flag?  
+Tragedies to the great nation?  
+But you came before my  
+taxi departed.  
+And we said goodbye Ariana in  
+the same bed where we met.  
+
+<sup>1</sup> The Revolution (1959) toppled statues of unwelcome presidents.  
+<sup>2</sup> Malecón the avenue along the cost in Havana Cuba.  
+<sup>3</sup> Neighborhood of embassies in Havana Cuba.  
+
+---  
+## Ariana <!-- 6, April 2016	 -->  
+Bucaneros y turistas  
+asediaron tus fronteras.  
+Frente al Caribe *candela*.  
+Te besé mirándote  
+admirarte en el espejo.  
+Los fuertes de tu Habana vieja,  
+donde vivís.  
+Con sus cañones cansados  
+de verte partir a la ciudad *nueva*.  
+Y tus calles negras de abandono.  
+Te esperaron ansiosos,  
+mientras yo temblaba desnudo.  
+Tango para dos.  
+Entre el Malecón y la mas gloriosa  
+de todas las revoluciones.  
+
+## Ariana <!-- 17, April 2016 -->  
+Buccaneers and tourists  
+besieged your borders.  
+Facing the Caribbean *candela*<sup>1</sup>.  
+I kissed you watching you,  
+admire yourself in the mirror.  
+The fortresses of the old Havana<sup>2</sup>  
+where you live.  
+With their cannons tired  
+of seeing you leave to the *new* *city*.  
+And your black streets of abandonment.  
+Waited for you anxious, while I trembled naked.  
+Tango for two.  
+Among the *Malecón*<sup>3</sup> and the most glorious  
+of all the revolutions.  
+
+<sup>1</sup> Typical Cuban word used in different contexts for emotion, trouble, etc.  
+<sup>2</sup> Neighbourhood in Havana Cuba  
+<sup>3</sup> Malecón the avenue along the cost in Havana.  
+
+---  
+## Katharina <!-- 27, March 2016  -->  
+Olvidé el vaso que  
+robamos en Copenhague,  
+antes de conocerte.  
+Busqué en los muros  
+de Pompeya.  
+En sus calles de piedra  
+sin alcantarillas.  
+En su sol de ciudad de mar.  
+En su dios Vesubio.  
+Las mismas palabras  
+que nos dijimos después  
+del bar a medianoche.  
+Las mismas fotografiás  
+caminando con sonrisas.  
+Pero los comunes  
+perdieron su historia.  
+Los que no conquistaron  
+ni pisotearon.  
+Los que no marcharon como  
+generales a África.  
+No fueron recordados ni  
+en canciones ni en pigmentos.  
+Y te recuerdo dulce mujer amiga.  
+Aunque nadie escriba de  
+lo que nos importa.  
+Y yo me halla olvidado  
+del vaso que robamos  
+en Dinamarca.  
+
+## Katharina <!--  -->  
+I forgot the glass  
+we had stolen in Copenhagen,  
+before I met you.  
+I searched the walls of Pompeii.  
+In its cobbled streets  
+without drains.  
+In its sun of a sea side city.  
+In its god Vesuvius.  
+The same words  
+we said to each other  
+at midnight after the bar.  
+The same photographs of us  
+walking with smiles on our faces.  
+But the common people  
+have lost their history.  
+Those who did not conquer  
+or trample.  
+Those who did not march as  
+generals into Africa.  
+They were not remembered in  
+songs or pigments<sup>1</sup> .  
+And I remember you  
+sweet woman friend.  
+Although no one writes  
+about what matters to us.  
+And I have forgotten  
+the glass we stole  
+in Denmark.  
+
+
+<sup>1</sup> Frescoes  
 ---  
 ## Sofia <!-- 23, March 2016 -->  
 Cuerpo sin versos.  
@@ -79,7 +1842,7 @@ entre mis dedos y tus piernas.
 Entre tus labios y mi hombría.  
 Entre el condón y el alma mía.  
 
-<sup>1</sup> Central Line Londres
+<sup>1</sup> Central Line Londres  
 
 ## Sofia <!-- 10, April 2016  -->  
 Body without verses.  
