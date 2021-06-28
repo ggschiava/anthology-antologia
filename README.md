@@ -52,6 +52,445 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 *Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
 *Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
+
+---  
+## Al Norte del Norte – Diana <!-- 9, November 2019 -->  
+La noche llegó  
+quememos Estocolmo.  
+Abracadabra del  
+invierno al verano.  
+¡Llamas! ¡Porque las aliento!  
+Fundan los candados  
+y los corazones  
+en los puentes.  
+De los que se besaron  
+escondiendo una llave  
+en el bolsillo de atrás.  
+
+Mi amor no tiene  
+planes B.  
+Camina con frio  
+y te espera en  
+*Hötorget*<sup>1</sup>.  
+Vos dudas si me querés  
+o te marchas.  
+Si Londres es  
+la próxima parada  
+o el bus te deja  
+en Estocolmo.  
+Elegís quedarte.  
+Y abro la botella  
+de *Pol* *Roger*,  
+que tanto te gusta.  
+
+Para nosotros.  
+La luz no se mide  
+en años.  
+El atardecer  
+en reposeras.  
+El futuro  
+en guayabos<sup>2</sup>.  
+
+El Vasa<sup>3</sup> y sus huesos  
+custodian la bahía.  
+Para siempre  
+es el café  
+en unas horas.  
+El Báltico  
+que fue sueco.  
+Los muros  
+perdidos a los rusos.  
+
+<sup>1</sup> Estacion de metro cerca del 18 de Lästmakargatan  
+<sup>2</sup> Resacas en colombiano  
+<sup>3</sup> Vasa buque de guerra undido y rescatado en Estocolmo  
+
+---  
+##  Canción de pueblo a la fiesta de la Paloma en La Latina Madrid  <!-- 25, August 2019 -->  
+El sol se escapó.  
+*La* *la* *la*.  
+Señoras con perritos.  
+*La* *la* *la*.  
+Banqueros, lesbianas y  
+maricones.  
+*Ta* *ta* *ta*.  
+La Latina<sup>1</sup> llama a  
+trasnochar.  
+*¡Suelten* *a* *Paloma!*  
+Dos y dos son  
+cuatro, gitana.  
+Cuatro y dos son  
+seis.  
+Doblemos la próxima  
+resaca.  
+A calimocho y  
+jerez.  
+*¡Que* *hay* *amor* *fuera*  
+*de* *Lavapiés!*<sup>2</sup>  
+
+<sup>1</sup> La Latina barrio de Madrid.  
+<sup>2</sup> Lavapies barrio de Madrid.  
+
+
+
+---  
+## Milan – Estocolmo  <!-- 29, July 2019	 -->  
+Las montañas me  
+llaman a esperar.  
+El báltico a elegir  
+el norte.  
+Vine a conocer  
+el amor.  
+Donde los caballos  
+son rojos<sup>1</sup>.  
+Y la luna cultiva  
+ojos azules.  
+Luna presentame  
+a tu hija.  
+*‘Se* *llama* *Milan*  
+*y* *es* *de* *cielo* *y* *nieve‘*  
+A mí me sabe  
+a fuego y *candela*.  
+Bailamos y nos  
+besamos en Tak<sup>2</sup>.  
+Bajo vos luna llena.  
+Reyes suecos,  
+nobles daneses,  
+Cristo protestante.  
+Me retiro.  
+Aquí les dejo  
+mi piedra bautismal.  
+Católica y atea.  
+Palomas y gaviotas  
+de Estocolmo.  
+Vientos Vikingos.  
+Intercedan ante Milan,  
+por mí cariño.  
+Ella conoce la luz  
+de los días sin noches.  
+Yo las estrellas  
+del sur.  
+Y la ansiedad que  
+despiertan las tormentas.  
+
+
+<sup>1</sup> Caballos de Dalecarlia  
+<sup>2</sup> Tak Estocolmo  
+
+## Milan – Stockholm  <!-- 30, July 2019  -->  
+The mountains  
+beg me to stay.  
+The Baltic to embrace  
+the north.  
+I came to understand love.  
+Where the horses  
+are red<sup>1</sup> .  
+And the moon  
+cultivates blue eyes.  
+Moon introduce me  
+to your daughter.  
+*Her* *name* *is* *Milan*.  
+*She* *is* *made* *of* *skies* *and* *snow*  
+It tastes like fire to me.  
+We danced  
+and kissed in Tak<sup>2</sup>.  
+Under you in full moon.  
+Swedish kings,  
+Danish nobles,  
+protestant Christ.  
+I surrender.  
+Here I leave you  
+my baptismal stone.  
+Catholic and atheist.  
+Doves and seagulls  
+of Stockholm.  
+Viking winds.  
+Intercede with Milan  
+for my love.  
+She knows the warm  
+of the days without nights.  
+I experienced  
+the southern stars.  
+And the anxiety  
+that storms arouse.  
+
+<sup>1</sup>  Dalecarlian hourse
+<sup>3</sup>  Tak - Stockholm  
+
+---  
+## Stockholm Salsa  <!-- 4, July 2019 -->  
+De distintas puertas  
+llegamos.  
+De ríos, dunas  
+y vientos.  
+Ascensores, escaleras  
+y proyectos.  
+Me escapé de  
+Londres.  
+Llorando a mis  
+muertos.  
+No de guerras,  
+alambres y perros.  
+*One,* *two,* *three*.  
+Te suelto  
+la mano niña.  
+*Five,* *six,* *seven*.  
+Ya es tiempo  
+que te deje ir  
+mamá.  
+
+## Stockholm’s Salsa <!-- 7, July 2019  -->  
+Thought different doors  
+we have arrived.  
+Of rivers, dunes  
+and winds.  
+Elevators, stairs  
+and projects.  
+I ran away  
+from London.  
+Crying for  
+my deads.  
+Not from wars,  
+barbed wires and dogs.  
+*Uno,* *dos,* *tres*.  
+I free your hand girl.  
+*Cinco,* *seis,* *siete.*  
+It’s time,  
+I let you go,  
+mum.  
+
+---  
+## Limones  <!-- 31, May 2019 -->  
+Nubes vuelan y  
+se enamoran de  
+tus alegrías  
+en blanco y negro.  
+Blanco, blanco,  
+amarillo y ocre.  
+En el patio de mis  
+juegos.  
+A la abuela se le  
+murió su hijita.  
+A mí,  
+mi mamá de olvido.  
+Las nubes pasan  
+mirándome entre  
+limones.  
+Yo las conozco  
+y las condeno.  
+Porque te abandonaron  
+cuando gritaste  
+*ya* *no* *más*.  
+Entre mi escritorio  
+y el cielo.  
+Te extraño mucho  
+mamá.  
+
+## Lemons <!-- 12, June 2019 -->  
+Clouds glide  
+falling in love  
+with your joys  
+in black and white.  
+White, white,  
+yellow and ocher.  
+In the playground  
+of my games.  
+Grandma lost  
+her little daughter.  
+I lost my forgetting mother.  
+Clouds pass by  
+looking at me  
+among the lemons.  
+I know them  
+and I blame them.  
+As they abandoned you  
+when you shouted  
+*no* *more!*  
+Between my desk  
+and the sky.  
+I miss you so much,  
+mum.  
+
+---  
+## Jeniffer – No nos despedimos <!-- 2, April 2019  -->  
+*¿Qué* *pasa* *cuando*  
+*lastimamos?*  
+Las piedras son  
+fuego en Kamakura<sup>1</sup>.  
+*¿Qué* *sentís*  
+*cuando* *te* *olvido?*  
+El agua es fría  
+muy fría en Kamakura.  
+*¿Y* *las* *flores?*  
+Polen en mis ojos.  
+*¿Y* *tu* *amor?*  
+Espera un alhelí.  
+
+<sup>1</sup> Antigua capital de Japón  
+
+## Jeniffer – We didn’t say goodbye  <!-- 27, June 2019  -->  
+*What* *happens*  
+*when* *we* *hurt?*  
+The stones are  
+fire in Kamakura<sup>1</sup>.  
+What do you feel  
+when I forget you?  
+The water is cold  
+very cold in Kamakura.  
+*And* *the* *flowers?*  
+Pollen in my eyes.  
+*And* *your* *love?*  
+Waits for a  
+wallflower.  
+
+<sup>1</sup> Former capital of Japan.  
+
+
+---  
+## Jeniffer – *Brucia* *il* *mare*<sup>1</sup>  en Madrid <!-- 18, March 2019  -->  
+Tifones divinos ahogan.  
+Tifones divinos nos  
+embriagan.  
+Del Pacifico a  
+Chueca<sup>2</sup>.  
+El hielo se pasa  
+de boca en boca.  
+El agua se transforma  
+en vino.  
+Su corpiño en  
+tus manos.  
+Su boca en mis  
+mandamientos.  
+La teología de  
+la liberación.  
+En playa Girón<sup>3</sup>.  
+Hoy sos vos y ella.  
+Yo y ella.  
+Las trompetas llaman  
+a la carga.  
+El viento mengua.  
+Sus mejores ropas  
+ya no nos acompañan.  
+
+<sup>1</sup> “El mar está ardiendo” escrito en Italiano. Parafraseando la canción “Brucia la Terra” de Nino Rota.  
+<sup>2</sup> Barrio del ambiente en Madrid.  
+<sup>3</sup> Una de las playas donde desembarcaron para derrocar a Fidel Castro en 1961.  
+
+
+---  
+## Elegía a la Dr D’Albano  <!-- 3, March 2019	 -->  
+No fue un barquito  
+de papel.  
+Mamá de verde claro  
+en la guardia del hospital.  
+Ni mi llanto el río.  
+No fue un barquito  
+de papel.  
+Ni mi llanto el río.  
+Los que te devoraron  
+con flechas de fuego.  
+Y convirtieron  
+tus pulsos.  
+En arena de mi reloj.  
+Que cae y cae.  
+Sin que la pueda tocar.  
+Que la escucho  
+en la salita  
+del hospital.  
+Mientras te llaman  
+las enfermeras  
+desde la guardia.  
+Porque donde estés.  
+Me vas a escuchar.  
+Y vas a abandonar  
+las dos flores verdes  
+de tu cajón.  
+Y a los que te  
+velan con café.  
+Que *¡Terminé* *mi*  
+*tarea* *mamá!*  
+Está lloviendo  
+en Londres.  
+Miráme saltar.  
+De una nube  
+a dos cometas.  
+De esta semana  
+a dos días atrás.  
+
+## Elegy to Dr D’Albano  <!-- 8, March 2019 -->  
+Neither was a  
+little paper boat.  
+Light green mum  
+in A&E.  
+Nor my crying the river.  
+Neither was a  
+little paper boat.  
+Nor my crying the river.  
+The ones that devoured you  
+with fire arrows.  
+Converting your pulses  
+into hourglass’ sand.  
+That falls and falls  
+without being able  
+to touch it.  
+I hear it in A&E.  
+While the nurses call you  
+to your duty.  
+Does it matter  
+where you are?  
+You will always  
+listen to me.  
+And you are going to  
+leave the two green flowers  
+of your coffin.  
+And those  
+who mourn you.  
+Just Because.  
+*I* *finished* *my* *homework* *mum!*  
+It’s raining in London.  
+Watch me jump.  
+From a cloud  
+to two comets.  
+From this week  
+to two days ago.  
+
+---  
+## Jeniffer – Londres  <!-- 23, February 2019  -->  
+*London* *Bridge*  
+*tower* *bridge*.  
+Este y Oeste.  
+*¡No* *pasarán!* en Madrid  
+*¡Cae* *Barcelona!*<sup>1</sup>  
+Eres piedra,  papel  
+o lluvia  para el bosque.  
+El cambio está cortado  
+a machete.  
+La sangre se derrama  
+toda en los cuadros  
+de Caravaggio<sup>2</sup>.  
+Uno se muere y  
+no resucita.  
+El gol se grita para  
+un solo equipo en  
+la Bombonera.  
+Caminar en binario  
+es humano.  
+Pero Jeniffer  
+está desnuda.  
+Y duerme después  
+de nuestra pelea  
+en el taxi.  
+La matemática ya  
+no suma.  
+Elijo dividir por cero  
+el infinito.  
+Que cerrar la puerta  
+a su próxima visita.  
+
+
+<sup>1</sup> Guerra civil Española  
+<sup>2</sup> Judit y Holofernes de Caravaggio  
+
 ---  
 ## Cristina <!-- 13, February 2019	 -->  
 Corrí ese tren en  
@@ -1661,7 +2100,7 @@ to love each other.
 Before sharing our coffee.  
 
 <sup>1</sup>  Girl in Portuguese  
-<sup>2</sup>  Some dying stars create a supernova.
+<sup>2</sup>  Some dying stars create a supernova.  
 ---  
 ## El Vedado <!-- 9, April 2016  -->  
 En la Avenida de los  
