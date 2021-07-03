@@ -137,7 +137,7 @@ I have heard silver bullets
 fall into the sea.  
 From the windows  
 of this hospital.  
-The cold sea of Stockholm.
+The cold sea of Stockholm.  
 Swedish in each fish.  
 Swedish on every wave.  
 Arrange them by value,  
