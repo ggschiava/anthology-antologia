@@ -54,6 +54,412 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 
 
 ---  
+## Mar <!-- 27, May 2021 -->  
+Las balas de plata  
+son hermosas.  
+Las he escuchado  
+caer al mar.  
+Desde las ventanas  
+de este hospital.  
+El mar frío  
+de Estocolmo.  
+Sueco en cada pez.  
+Sueco en cada ola.  
+Las ordena de mayor  
+a menor.  
+De puras a extranjeras.  
+
+Desde mi ventana  
+preparo mis sandalias  
+y mi barca.  
+Con inciensos finos  
+de Jerusalén.  
+Con Arena de Saqqara<sup>1</sup>.  
+Abrazos y plegarias de  
+amigos.  
+Besos de Diana.  
+
+El mar une a Estocolmo  
+con el Nilo.  
+A los juncos con  
+los pinos y las rosas.  
+Es al mismo tiempo  
+puerta y ventana.  
+Que regala silencio y  
+un hombro atento.  
+A los que me han  
+querido.  
+Después del más acá.  
+
+El mar no tiene  
+grandes templos  
+Solo un pescador y  
+algunas Galileas.  
+
+Es de cristiano  
+proclamar la buena  
+muerte.  
+A los que quieran  
+oírla.  
+En los muros de Jericó.  
+En las plazas de Andalucía.  
+
+A mis amigos y a mi novia.  
+Gracias por los puertos  
+y las despedidas.  
+Buena es la muerte en  
+mi camino con flores.  
+Buena es la muerte en  
+mi camino con velas.  
+
+El fuego no tiene  
+lugar entre las olas.  
+Ni las flores ni las velas.  
+El mar me reclama  
+entre sus brazos de sal.  
+Sumerge mi cabeza  
+delicadamente.  
+Para elevarla entre  
+bisturíes y tormentas.  
+Extirpando mi tumor.  
+Y la nada de los que  
+no creemos.  
+Invitándome mientras  
+me despierta dulcemente.  
+Con suero azul  
+en mis venas.  
+A nadar.  
+
+<sup>1</sup> Saqqara Necropolis de la ciudad de Menfis  
+
+##  Sea <!-- 28, May 2021 -->  
+I have heard silver bullets  
+fall into the sea.  
+From the windows  
+of this hospital.  
+The cold sea of Stockholm.
+Swedish in each fish.  
+Swedish on every wave.  
+Arrange them by value,  
+from pure to imported.  
+
+From my window,  
+I prepare my sandals  
+and my sails.  
+With fine incense  
+from Jerusalem.  
+With sand from Saqqara<sup>1</sup>.  
+Hugs and prayers  
+from my friends.  
+Kisses from Diana.  
+
+The sea unites  
+Stockholm with the Nile.  
+The reeds with  
+pines and roses.  
+It’s at the same time  
+a door and a window  
+that listens to those  
+who have loved me.  
+
+The sea has no great  
+temples or cathedrals.  
+Just a fisherman  
+and some Galilees.  
+
+A Christian should proclaim  
+his good death  
+to those who want to hear it.  
+On the walls of Jericho,  
+on the streets of Andalusia.  
+
+To my friends  
+and my girlfriend,  
+thanks for the ports  
+we had visited.  
+Thanks for the  
+farewells we had said.  
+Good is the death  
+on my path with flowers.  
+Good is the death  
+on my way with candles.  
+
+
+Fire, flowers and candles  
+have no place among the waves.  
+The sea claims me in its arms  
+submerging my head delicately.  
+To raise it between  
+scalpels and storms.  
+Removing my tumour  
+and the silence of my atheism.  
+Inviting me,  
+while gently waking me up  
+with blue serum in my veins.  
+To swim.  
+
+
+<sup>1</sup> Saqqara necropolis for the ancient Egyptian capital, Memphis.  
+
+---  
+## Luna de nieve  <!-- 14, March 2021  -->  
+Los cisnes del Báltico  
+confunden al invierno.  
+Volando sobre las olas  
+como kamikazes.  
+
+*¡Gris* *es* *el* *cielo*,  
+*gris* *es* *el* *mar!*  
+Gritan y lloran mostrando  
+sus alas blancas.  
+
+Entre vasos de ron  
+y un descuido del  
+calendario.  
+El invierno cambió  
+Estocolmo por la Habana.  
+Las rubias por las mulatas.  
+
+Ignorando a los dioses  
+del Norte.  
+Desoyendo a los  
+vientos del Sahara.  
+
+Trajo nieve y alegría  
+al Malecón.  
+Las mulatas descalzas  
+bailaron y gozaron.  
+En la noche en que  
+la Luna fue de Nieve.  
+Y el invierno las amó.  
+
+---  
+## Venecia <!-- 12, December 2020  -->  
+Leo entre canales  
+las gotas que se acercan.  
+Escucho como es agua  
+que cae y se levanta.  
+Corriendo alocada  
+saltando y feliz.  
+
+*Sono* *acqua* *alta*.  
+*Sono* *acqua* *alta*.  
+
+Vuelve a mis dedos  
+y a mi boca.  
+Agua tibia de  
+seis años.  
+
+Me besa y me  
+suplica que no llore.  
+Por mares oscuros  
+y recuerdos de arena.  
+
+Doblo el papel una,  
+dos, cien veces.  
+Corriendo dejo el  
+barquito blanco  
+en la laguna Veneciana.  
+Y vuelvo a que me  
+abraces mamá.  
+
+
+---  
+## Etna <!-- 6, December 2020  -->  
+Si el fuego y el azufre  
+de tu corazón.  
+Fueran los culpables.  
+Yo firmaría sin dudar.  
+
+De Atenas a Venecia.  
+He dormido en  
+los templos de  
+Júpiter y Apolo.  
+Con sus columnas dóricas  
+en mármol.  
+Y en tus ciudades perfectas Etna,  
+de aforas y griegos.  
+
+Y mar azul.  
+Y piedras negras en  
+muros y castillos<sup>1</sup>.  
+Y más mar y más lluvia.  
+En ríos fríos de agua  
+bendita por vos Etna.  
+Que se transforma  
+en vino.  
+Vino de mujeres negras  
+con pechos desnudos  
+y cíclopes en celo<sup>2</sup>.  
+
+Dioses eran los que  
+enloquecían por tus  
+amores Etna.  
+Y el mar azul  
+te rodea.  
+Y el mar azul  
+me lleva.  
+Porque el mar  
+no tiene muros.  
+Sino islas  
+en las nubes<sup>3</sup>.  
+
+Y el mar ya no cree  
+en orgías de Dioses  
+ni en el Olimpo.  
+Y su amor eterno  
+de olas y pescadores.  
+Te ofrenda griegos  
+y romanos.  
+Cartagenos y  
+barbarrojas<sup>4</sup>.  
+
+Y yo menos hombre  
+que aquellos que  
+conquistaron y quemaron  
+tus templos y ciudades.  
+Me despido porque  
+el mar y la lluvia  
+no son imparciales.  
+Maltratan mi puerto  
+y mi barca.  
+Y no tengo las fuerzas  
+ni las armas.  
+Para reclamar lo que es mío.  
+
+Caminar tierra adentro.  
+Que mis pasos sean  
+raíces y mis brazos ramas.  
+Para amarte como  
+los olivos que ven  
+pasar lunas y estrellas.  
+Y no te abandonan  
+ni por el mar  
+ni por la sangre  
+o los piratas.  
+
+
+<sup>1</sup> Catania  
+<sup>2</sup> Ulysses encallo en Milazzo  
+<sup>3</sup> El dios Eolo habita en las Islas Eolias  
+<sup>4</sup> Jeireddín Barbarroja pirata Turco  
+
+
+
+---  
+## Rutinas, Covid-19 <!-- 13, April 2020  -->  
+Mi jardín tiene historias.  
+Y me adhiero a su rutina  
+de ramas y flores.  
+Llevo un mes o  
+unas semanas.  
+Mirando y escuchando  
+los ruidos del  
+piso desnivelado.  
+Tomando mi bicicleta  
+con rutina por las tardes  
+con sol en las ventanas.  
+Con Londres naranjo en flor.  
+Hoy limpié con rutina  
+el piso y los techos de  
+esta casa en primavera.  
+Y con rutina vi a la  
+ardilla gris (la misma que  
+me tira las plantas)  
+buscar un lugar para  
+sus tesoros.  
+
+Son rutinas de  
+cine en radio.  
+Con voces de  
+gente que quiero.  
+A veces con melancolía  
+*High* *and* *Dry*<sup>1</sup>.  
+A veces con ganas  
+de ser lo que mi  
+cámara toma.  
+Cuando tomo mi bicicleta  
+con rutina.  
+Por la avenida del puente gris  
+(como la ardilla).  
+
+Ya es de noche con rutina.  
+Hoy se ven las  
+estrellas del Norte.  
+Meteré con rutina  
+estas palabras en tinta.  
+Y la tinta dentro de  
+una botella.  
+Para que el mar  
+con olas y piedras,  
+me las devuelva  
+mañana.  
+A tiempo para tomar  
+mi bicicleta y mi jardín.  
+A puentes con tesoros.  
+Y la rutina de un  
+teatro de papel.  
+
+<sup>1</sup> High and Dry, Radiohead  
+
+## Routine – Covid 19 <!-- 13, April 2020 -->  
+My garden has stories.  
+I comply with its routine  
+of branches and flowers.  
+I’ve been for a month  
+or maybe for a few weeks.  
+Looking and listening  
+to the sounds  
+of the uneven floor.  
+Cycling my routine away  
+with my camera.  
+During the sunny  
+afternoon.  
+
+I saw the grey  
+squirrel’s routine  
+(the same one that  
+throws my plants  
+on the floor)  
+looking for a place  
+for its treasures.  
+
+These are routines  
+of cinema on the radio.  
+With the voices of  
+people I love.  
+Sometimes with melancholy  
+*High* *and* *Dry*<sup>1</sup>.  
+Sometimes wanting  
+to be what my camera takes.  
+While I routinely ride  
+my bicycle.  
+Down the avenue  
+to the grey bridge  
+(grey as the squirrel).  
+
+The routine brought  
+the night.  
+Tonight I can see  
+the Northern stars.  
+I routinely put these  
+words in ink.  
+And the ink  
+inside a bottle.  
+So that the sea  
+with waves and stones  
+will return them to me  
+tomorrow.  
+In time to take my bicycle  
+and my garden.  
+To bridges with treasures.  
+And the routine  
+of a paper theater.  
+
+<sup>1</sup> High and Dry, Radiohead  
+
+
+---  
 ## Al Norte del Norte – Diana <!-- 9, November 2019 -->  
 La noche llegó  
 quememos Estocolmo.  
@@ -214,7 +620,7 @@ the southern stars.
 And the anxiety  
 that storms arouse.  
 
-<sup>1</sup>  Dalecarlian hourse
+<sup>1</sup>  Dalecarlian hourse  
 <sup>3</sup>  Tak - Stockholm  
 
 ---  
