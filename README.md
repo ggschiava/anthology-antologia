@@ -54,6 +54,39 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 
 
 ---  
+## Mar <!-- 29, July 2021 -->  	
+Escucho palabras
+que suben, bajan
+y se hacen espuma.
+De la luna nueva
+a la de cuarto menguante.
+Hablan de esclavizar
+el mar.
+De vengar la luz
+y los que no están.
+
+Mi ventana está
+quebrada.
+Y por ella entran
+el viento y la sal.
+Hay una, no una,
+dos almas mirando
+el horizonte y las olas.
+
+El mar es cómplice
+del sol.
+Que detrás de él
+se esconde.
+Cuando en la
+noche.
+Escuchamos un tigre
+dientes de sable.
+Una rama se rompe.
+Y nos despertamos.
+Entre la almohada y
+otro pequeño país.
+
+---  
 ## Mar <!-- 27, May 2021 -->  
 Las balas de plata  
 son hermosas.  
