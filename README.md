@@ -52,6 +52,48 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 *Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
 *Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
+---  
+## Elegía al Ing. Mario Antonio D´ERRICO  <!-- 11, August 2021 -->  	
+La tiza dibuja
+perfiles y ecuaciones
+de la frontera.
+Explicando porqué
+vuela aquello
+que nos hace soñar.
+
+Nubes blancas
+y grises se pasean
+por tus notas a
+mano alzada.
+Sobre los aviones
+*que* *gustan* *y*
+*los* *que* *enamoran*.
+
+Corrientes de aire caliente
+elevan las alas de
+*Hurricanes* *y* *Spitfires*…
+El cielo de Londres
+te espera y los
+recuerda.
+Tener amigos
+es no perder.
+
+Arenas y no cenizas
+nos separan Mario.
+Atravesando tu reloj
+una a una.
+Posándose sobre
+este balcón con aroma
+Madrileño.
+Por el que te acerco
+un café.
+Me saco mi sombrero
+de luto.
+Buscando el libro
+que aún te tengo
+que llevar.
+Y te invito a quedarte
+unos minutos más.
 
 ---  
 ## Mar <!-- 29, July 2021 -->  	
