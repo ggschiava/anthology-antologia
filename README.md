@@ -53,80 +53,116 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 *Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
 ---  
-## Elegía al Ing. Mario Antonio D´ERRICO  <!-- 11, August 2021 -->  	
-La tiza dibuja
-perfiles y ecuaciones
-de la frontera.
-Explicando porqué
-vuela aquello
-que nos hace soñar.
+## Como ateo (Spanish) <!-- 13, August 2021 -->  	
+Como ateo   
+me cayó   
+un tumor.   
 
-Nubes blancas
-y grises se pasean
-por tus notas a
-mano alzada.
-Sobre los aviones
-*que* *gustan* *y*
-*los* *que* *enamoran*.
+No fue de camino   
+a Damasco<sup>1</sup>.   
+Ni grité   
+*Ansioso* *de* *verte*   
+*deseo* *morir*<sup>2</sup>.   
 
-Corrientes de aire caliente
-elevan las alas de
-*Hurricanes* *y* *Spitfires*…
-El cielo de Londres
-te espera y los
-recuerda.
-Tener amigos
-es no perder.
+No hay redención   
+en dos centímetros   
+de tumor.   
 
-Arenas y no cenizas
-nos separan Mario.
-Atravesando tu reloj
-una a una.
-Posándose sobre
-este balcón con aroma
-Madrileño.
-Por el que te acerco
-un café.
-Me saco mi sombrero
-de luto.
-Buscando el libro
-que aún te tengo
-que llevar.
-Y te invito a quedarte
-unos minutos más.
+Hay mi mano   
+y mi cabeza.   
+Hay aire que se   
+transforma en   
+tinta y terror.   
+Cuerpo a   
+cuerpo.   
+
+Hay un bisturí   
+que me lastima.   
+Abre mi costado<sup>3</sup>   
+y me redime.   
+Acero que es   
+cruz y cara.   
+
+<sup>1</sup> Hechos. 9:5-6   
+<sup>2</sup> ‘Aves del destierro’ Santa Teresa de Jesús   
+<sup>3</sup> Juan. 19:33-34   
+
 
 ---  
-## Mar II <!-- 29, July 2021 -->  	
-Escucho palabras
-que suben, bajan
-y se hacen espuma.
-De la luna nueva
-a la de cuarto menguante.
-Hablan de esclavizar
-el mar.
-De vengar la luz
-y los que no están.
+## Elegía al Ing. Mario Antonio D´ERRICO  <!-- 11, August 2021 -->  	
+La tiza dibuja   
+perfiles y ecuaciones   
+de la frontera.   
+Explicando porqué   
+vuela aquello   
+que nos hace soñar.   
 
-Mi ventana está
-quebrada.
-Y por ella entran
-el viento y la sal.
-Hay una, no una,
-dos almas mirando
-el horizonte y las olas.
+Nubes blancas   
+y grises se pasean   
+por tus notas a   
+mano alzada.   
+Sobre los aviones   
+*que* *gustan* *y*   
+*los* *que* *enamoran*.   
 
-El mar es cómplice
-del sol.
-Que detrás de él
-se esconde.
-Cuando en la
-noche.
-Escuchamos un tigre
-dientes de sable.
-Una rama se rompe.
-Y nos despertamos.
-Entre la almohada y
-otro pequeño país.
+Corrientes de aire caliente   
+elevan las alas de   
+*Hurricanes* *y* *Spitfires*…   
+El cielo de Londres   
+te espera y los   
+recuerda.   
+Tener amigos   
+es no perder.   
+
+Arenas y no cenizas   
+nos separan Mario.   
+Atravesando tu reloj   
+una a una.   
+Posándose sobre   
+este balcón con aroma   
+Madrileño.   
+Por el que te acerco   
+un café.   
+Me saco mi sombrero   
+de luto.   
+Buscando el libro   
+que aún te tengo   
+que llevar.   
+Y te invito a quedarte   
+unos minutos más.   
+
+---     
+## Mar II <!-- 29, July 2021 -->  	   
+Escucho palabras   
+que suben, bajan   
+y se hacen espuma.   
+De la luna nueva   
+a la de cuarto menguante.   
+Hablan de esclavizar   
+el mar.   
+De vengar la luz   
+y los que no están.   
+
+Mi ventana está   
+quebrada.   
+Y por ella entran   
+el viento y la sal.   
+Hay una, no una,   
+dos almas mirando   
+el horizonte y las olas.   
+
+El mar es cómplice   
+del sol.   
+Que detrás de él   
+se esconde.   
+Cuando en la   
+noche.   
+Escuchamos un tigre   
+dientes de sable.   
+Una rama se rompe.   
+Y nos despertamos.   
+Entre la almohada y   
+otro pequeño país.   
 
 ---  
 ## Mar <!-- 27, May 2021 -->  
