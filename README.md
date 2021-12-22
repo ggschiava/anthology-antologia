@@ -52,6 +52,51 @@ To see the date of the poem see this file with any plain text editor withtout Ma
 *Primero esta el poema en español seguido cuando tiene de la traduction en ingles.*   
 *Para ver la fecha de publication ver este archivo en cualquier editor de texto sin Markdown view*  
 
+
+---  
+## A Juan Dalman<sup>1</sup> de un compañero de celda (Spanish) <!-- 22, December 2021 -->  	
+*Antes* *que* *el*  
+*viento* *cante* *me*  
+*negaras* *tres* *veces*  
+*Juan*.  
+
+Conozco la cama blanca  
+que te impulsa al sur.  
+Las ventanas verdes,  
+las agujas que  
+cortan y duelen.  
+La arena que arrastra el  
+viento Pampa.  
+El desayuno y el  
+almuerzo cuando  
+lo demandan.    
+
+Vivo tus miedos,  
+tocalos en mi costado.  
+Son suero y sangre.  
+Tus ojos vuelan y releen  
+a Sandokán y a Costantino  
+hijo de Manuel<sup>2</sup>.  
+Mientras la fiera termina  
+la ginebra.  
+Toma su facón<sup>3</sup>  
+y te mata.    
+
+Aquí me dejas  
+compañero de celda.  
+En las manos con  
+tierra del  
+gaucho pampa.  
+Cierro tu libro.  
+Ya es hora  
+que llame a las  
+enfermeras y  
+cene.    
+
+<sup>1</sup> Juan Dalman, personaje del cuento de Borges ‘El Sur’  
+<sup>2</sup> Ultimo emperador Romano  
+<sup>3</sup> Arma predilecta del gaucho    
+
 ---  
 ## Como ateo (Spanish) <!-- 13, August 2021 -->  	
 Como ateo   
